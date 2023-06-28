@@ -2,8 +2,8 @@
 
 ## Chapter 3: The Skulled Crow
 
-*Hahn,*
-*I met a man and Im going with him. You and I had our life together, but I cant stay here anymore. I cant stay with you. This man will take care of us and the baby. The babys not right. I have to find a doctor. I dont want to be with you. Please dont try to find me. Our girl will die here and I can’t bear that. Please think of her.*
+*Hahn,*  
+*I met a man and Im going with him. You and I had our life together, but I cant stay here anymore. I cant stay with you. This man will take care of us and the baby. The babys not right. I have to find a doctor. I dont want to be with you. Please dont try to find me. Our girl will die here and I can’t bear that. Please think of her.*  
 *-Anna*
 
 
@@ -15,11 +15,11 @@ Hahn’s hand clenched around a fistful of Janus’ shirt, and he heaved the sle
 
 “Stop fighting!” Brimwylf cried desperately from the other side of the room, but his voice seemed far away, unable to penetrate the conflict. “Both of you, stop!”
 
-“Where’s my wife?” Hahn demanded as they struggled among the bedding and overturned crates. He had the upper hand in brute strength, but Janus was quick and precise, making him formidable even against the hunter’s wild fury. Janus evaded as long as he could, but it wasn’t long before Hahn managed to pin the coyote beneath his greater weight.
+“*Where’s my wife?*” Hahn snarled as they struggled among the bedding and overturned crates. He had the upper hand in brute strength, but Janus was quick and precise, making him formidable even against the hunter’s wild fury. Janus evaded as long as he could, but it wasn’t long before Hahn managed to pin the coyote beneath his greater weight.
 
-“You said you would protect them!” the enraged Hahn shouted, smashing his fist into Janus’ jaw. “Where is she?”
+“You said you would protect them!” the enraged Hahn shouted, smashing his fist into Janus’ jaw. “Where is she!?”
 
-“Fuck if I know!” Janus shouted back, spitting a mouthful of blood. He slammed a knee into Hahn’s groin and the hunter recoiled in pain; an opportunity the coyote couldn’t waste. He was up in an instant and landed a solid punch into Hahn’s face, holding back nothing.
+“Fuck if I know!” Janus shouted back, spitting a mouthful of blood. He slammed a knee into Hahn’s groin and the hunter recoiled in pain. The coyote was up in an instant and landed a solid punch into Hahn’s face, holding back nothing.
 
 Hahn rolled back into the crates and this time, Janus didn’t give him the chance to recover. He was over Hahn now, punching him, and even when he felt blood – his and Hahn’s – he didn’t stop.
 
@@ -31,7 +31,7 @@ And Hahn stared back up at him blankly, blood matting his short beard, his arms 
 
 Janus was tempted to keep punching.
 
-“What the hell’s wrong with you,” Janus snarled coldly, turning his head and spitting more blood into the dirt. Slowly, he lowered his fist and pulled back, sitting next to the prone form of the hunter. Breathing heavily, he touched his split temple and hissed at the sting. He noticed absently that Brims was nowhere to be seen, but that was probably for the better.
+“What the hell’s wrong with you,” Janus growled coldly, turning his head and spitting more blood into the dirt. Slowly, he lowered his fist and pulled back, sitting next to the prone form of the hunter. Breathing heavily, he touched his split temple and hissed at the sting. He noticed absently that Brims was nowhere to be seen, but that was probably for the better.
 
 Hahn sat up. He passed Janus the note from Anna, then pulled out a cigarette from the crumpled pack.
 
@@ -43,7 +43,7 @@ The hunter slowly exhaled a long stream of smoke through his nose, the action so
 
 Janus said nothing, leaving empty space for Hahn to fill, if he chose.
 
-“I tried to get her to….”
+“I tried to get her to…”
 
 *Terminate*. 
 
@@ -61,23 +61,23 @@ Octavia was not a slave nation in the manner of Sobretses, but *they* were a vag
 
 “They will not take my son,” he said again, and his eyes were no longer empty.
 
-“Well… about the pharos…” Janus ventured, “...unless we plan to stick to the Wall like barnacles forever, we need a specialist. I can’t fix it.”
+“Well… and about our pharos…” Janus ventured, “...unless we plan to stick to the Wall like barnacles forever, we need a specialist. I can’t fix it.”
 
-“So it’s settled, then. We break into Octavia, get my son, and kidnap an engineer on the way out. Then we can finally be rid of this godforsaken hellhole. Maybe finally go somewhere we can make into a real home.”
+“So it’s settled, then. We break into Octavia, get my son, and kidnap an engineer on the way out. Then we can finally be rid of this godforsaken hellhole. Maybe go somewhere we can make into a real home.” 
 
-—
+---
 
 Dawn spread her frosted fingertips over the Sprawl, again whispering promises of cold on the horizon. Somewhere, a dog barked nonstop, and in the distance wagons rattled to life, but the humble town was primarily silent. 
 
-Janus and Hahn found Brimwylf huddled in the corner of Anna’s shack, crying softing into his arms. He didn’t understand what was happening, and the threat of his happy home breaking apart shook him to his core.
+Janus and Hahn found Brimwylf huddled in the corner of Anna’s shack, crying softly into his arms. He didn’t understand what was happening, and the threat of his happy home breaking apart shook him to his core.
 
 Janus soothed his brother with hopeful, cajoling words, and knowing that the best way to distract Brims was with a task, sent him off to the junkyard to find batteries. 
 
 With that accomplished, Hahn and Janus set about prospecting the Sprawlers for whatever information they could uncover. The hunter was calm now, but Janus watched him carefully, keenly aware that he was now the only one capable of checking Hahn’s unpredictable temperament.
 
-Janus told Hahn about the priest, and the words made the hunter’s skin crawl.
-
 Hahn cloaked his intentions in the guise of regular, post-hunt business, which he typically conducted after returning to the Sprawl. He ensured that the prey they’d brought back had been properly butchered, and the meat separated, packaged, and preserved as it should be. He paid the appropriate individuals their due from the money collected at the Outpost, and he delivered supplies he’d purchased to their respective establishments. While he did these things, he slipped in a few extra questions, made a little more conversation than usual, and gleaned what he could.
+
+Janus told Hahn about the priest, and the information made the hunter’s skin crawl.
 
 He and Janus weren’t leaders, per se, but due to the nature of their roles – one to provide meat and the other to maintain their defenses – they had a level of authority within the Sprawl that was unmatched. Even the surliest of Sprawlers begrudgingly obliged questions from Hahn – or risked losing their meat rations – and the pair of them were able to join breakfast circles in any corner of the Sprawl.
 
@@ -93,7 +93,7 @@ Yet none could say what that meant, and when pressed their superstitions ran wil
 
 Few recalled anything about a soft-spoken priest with ginger hair, but a couple of them did notice some children missing. At first, it was a curiosity; many of the absent kids were orphaned or disowned, but earned their keep doing chores and simple labors around the Sprawl. A missing kid was nothing new, especially after a visit from foreigners, but late into the morning many Sprawlers found their trash hadn’t been collected, and water hadn’t been brought in, and the animals hadn’t been fed, and it was then that they started asking questions. 
 
-Almost a dozen kids, mostly strays, hadn’t turned out for morning chores or collected their breakfast. By noon even Hahn’s hardened soul was thoroughly unsettled, and he still hadn’t discovered anything about the priest.
+Almost a half-dozen kids, mostly strays, hadn’t turned out for morning chores or collected their breakfast. By noon even Hahn’s hardened soul was thoroughly unsettled, and he still hadn’t discovered anything about the priest.
 
 “Ahhh, the Father Ydranna!” an old crone squawked from the door of her hut, overhearing Hahn’s inquiries nearby. “What a nice young man, ‘e was.”
 
@@ -111,7 +111,7 @@ Nem emitted a shrill, barking laughter, and Hahn cut her off impatiently. “Wha
 
 Young girls were not Hahn’s preferred demographic, especially with his face busted up, but he sighed and thanked Nem for the information. She badgered him a moment, coughing theatrically, until he finally tipped the old crone a copper, then he headed around the hut to talk to Hobbes. In all his years of being a Sprawler, he’d only interacted with the girl twice, and he did his best to mentally pack away the severity of what he was carrying, softening his expression as best as he could. Janus chuckled at his plight and offered to talk to the girl on his behalf.
 
-“Your face don’t look any better than mine.” Hahn grumbled.
+“Your face don’t look any better than mine,” Hahn grumbled.
 
 “And whose fault is that?”
 
@@ -151,16 +151,15 @@ Hahn rose and Janus rejoined him silently, the two heading back in the direction
 
 “*They*?”
 
-Hahn held up the coin, showing Janus the skull-faced crow sigil stamped into the metal. “Think your ex-boyfriend’s back to stir up trouble?”
+Hahn held up the coin, showing Janus the skulled crow sigil stamped into the metal. “Think your ex-boyfriend’s back to stir up trouble?”
 
 Janus stopped, his expression surprised at first, then darkening. Finally, he shrugged nonchalantly and resumed walking.
 
-"Doubt it,” he answered quietly. “Serbanescu clan’s growin’ their numbers these days, could be anyone."
-
+"Doubt it,” he answered quietly. “The Serbanescu clan’s growin’ their numbers these days, could be anyone."
 
 “Crowfolk don’t just wander into the Sprawl,” Hahn replied, but let the matter drop.
 
-–
+---
 
 “Okay, but what I don’t understand is,” Brimwylf was saying, making small gestures with his hands, “why would the kids leave *before* breakfast?”
 
@@ -196,15 +195,15 @@ Hahn crossed his arms, unconsciously drawing himself up to his full height. “N
 
 “Are we seriously gonna kill people?” Brims asked again. “C’mon, there has to be another way.”
 
-“Festival means bloodsports, we could get in as arena fighters.” Hahn ventured. “But we’d be inside the city with no papers. And we’d still end up killing people, just… legally.”
+“Festival means bloodsports, we could get in as arena fighters,” Hahn ventured. “But we’d be inside the city with no papers. And we’d still end up killing people, just… legally.”
 
 “Brims would be slaughtered, and I’m not leaving him here,” Janus answered. “What about the militia? They’re always recruiting for the wall guard, and we’d have papers.”
 
-“*Fuck that*,” Hahn spat venomously. “I’d fight in the goddamn *pit* before putting on that leash.”
+“*Fuck that*,” Hahn spat venomously. “I’d fight in the goddamn *pit* before putting on some goddamn leash again.”
 
 “But the wall guard would be perfect for Brims, and we’d be able to get information to and from the Sprawl,” Janus reasoned, unperturbed by the outburst. “If the rumors are true and something is coming… we may not have time to slink around Octavia without papers.”
 
-“*You* can join the fucking guard,” Hahn grumbled. “Who knows how long the recruitment process would take – bloodsports are faster. The have-alls gotta get their rocks off somehow.”
+“*You* can join the fucking guard,” Hahn growled. “Who knows how long the recruitment process would take – bloodsports are faster. The have-alls gotta get their rocks off somehow.”
 
 “Maybe we should split up, then. Take two paths, better odds one of ‘em gets us there. But it’s risky; we’ll be on our own if there’s trouble.”
 
