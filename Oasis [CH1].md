@@ -51,12 +51,13 @@ Johannes stood and slung his pack over his shoulder, reclaimed his rifle, and be
 
 ---
 
-*Mennuin’s the place to be,*
-*For beer and Suprex and tea,*
-*And knives and ammo and fleas,*
+
+*Mennuin’s the place to be,*  
+*For beer and Suprex and tea,*  
+*And knives and ammo and fleas,*  
 *Mennuin’s the place to be.*
 
-Johannes arrived at Mennuin’s Outpost just as darkness was settling over the region, and the bright color of the outpost’s many neon signs and relatively short *pharos* provided a beacon for all weary travelers. The Suprex lighthouse burned an oil that was easily identifiable as vaguely sweet and vaguely rotten, but most thought of it as the smell of *_safety*, _a pungent repellent for all livercrawlers. 
+Johannes arrived at Mennuin’s Outpost just as darkness was settling over the region, and the bright color of the outpost’s many neon signs and relatively short *pharos* provided a beacon for all weary travelers. The Suprex lighthouse burned an oil that was easily identifiable as vaguely sweet and vaguely rotten, but most thought of it as the smell of *safety*, a pungent repellent for all livercrawlers. 
 
 A functioning pharos was a requirement for any encampment hoping to survive nightfall.
 
@@ -82,7 +83,7 @@ The occupants of Mennuin’s little village were mostly therianthropes, although
 
 Johannes liked the Burro Clan; they were roughshod rogues who didn’t bathe nearly as often as they should, but they were a real salt-of-the-earth group who’d cheat you out of everything you own and save your ass from a livercrawler in the same night. He could respect that more than the humans who would never deign to cheat, but would turn a blind eye to men being eaten alive outside city walls.
 
-The largest building was *_Mennuin’s General Store*, _and outside the general store were many individual stalls hawking various wares, from tobacco to woven jewelry to baked goods to _*”tobacco”* _to hand lanterns to grilled frog skewers. The stall owners and patrons were making the last bargains and closing up for the night, so Johannes exchanged a couple of boiled eggs for a frog skewer and headed into the general store.
+The largest building was *Mennuin’s General Store*, and outside the general store were many individual stalls hawking various wares, from tobacco to woven jewelry to baked goods to *”tobacco”* to hand lanterns to grilled frog skewers. The stall owners and patrons were making the last bargains and closing up for the night, so Johannes exchanged a couple of boiled eggs for a frog skewer and headed into the general store.
 
 Father Barrabas, a dark-skinned, aging priest, was sitting at a writing desk just inside the door, which was comically small for the man and probably designed for primary school children. He was copying some sort of book into a second, blank one, but he glanced up when Johannes entered.
 
