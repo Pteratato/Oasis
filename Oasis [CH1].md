@@ -1,6 +1,7 @@
 ![!Oasis 1](https://cdn.discordapp.com/attachments/638778932380041236/1123657745816637511/Oasis_CH11.png)
 
-### Chapter 1
+## Chapter 1: The Hunt
+
 
 Sick, sweet, rancid milk. 
 
