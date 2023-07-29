@@ -64,7 +64,7 @@ Janus listened for a moment, then shook his head. “Nah, you got it. The lieute
 
 “Well, that’d at least get us on the other side of the damn Wall.”
 
-–
+---
 
 “What is the meaning of this?”
 
@@ -114,8 +114,7 @@ She turned to Hahn, pulling back into her full stature and peering down at him f
 
 “Octavia’s debt is justly repaid. If I hear of some scheme afoot, any foul plotting or felonious behavior, I will personally come for you.”
 
-The she-wolf lingered to emphasize the threat hanging heavily in the air. Then, when she could no longer justify inaction, she turned and left, pursuing the reports of the livercrawler. HAREs promptly surrounded them, cuffing their hands and grumbling about bad smells and fleas.
+The she-wolf lingered to emphasize the threat hanging in the air. Then, when she could no longer justify inaction, she turned and left, pursuing the reports of the livercrawler. HAREs promptly surrounded them, cuffing their hands and grumbling about bad smells and fleas.
 
-As he was being detained, Hahn nudged Brimwylf and offered the young one a wink in a rare display of approval.
+As he was being detained, Hahn nudged Brimwylf and winked at him in a rare display of approval.
 
-–
