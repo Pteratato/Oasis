@@ -118,7 +118,7 @@ Once they’d exhausted every bit of news, Mennuin allowed Johannes the use of h
 
 Johannes settled into the hard, itchy cot and tucked his arms behind his head. He stared up at the small, barred ventilation window towards the top of the shack, moonlight streaming inside. He was surrounded by canned food and junk, moth-eaten leather, and the musty smell of mildew. He was pretty sure there were mites in his cot, and the thin sheet was not near enough to protect from the coolness of the autumn night. But Johannes was not uncomfortable here.
 
-He closed his eyes and thought of his family; his wife Anna, and their little son Jae. The situation for the Sprawl was precarious for all of them, and they all felt something uncanny on the horizon, something dark and creeping that they couldn’t quite identify. Was the threat of winter? Was it some unconscious instinct of a harsh season, something promised in the wind, maybe? 
+He closed his eyes and thought of his family; his wife Anna, and their little son Jonas. The situation for the Sprawl was precarious for all of them, and they all felt something uncanny on the horizon, something dark and creeping that they couldn’t quite identify. Was the threat of winter? Was it some unconscious instinct of a harsh season, something promised in the wind, maybe? 
  
 But in this moment, after the success of a bountiful hunt and bags full of supplies, with the waning relaxation of the flower still working its way through his system, and the smell of Suprex in the air, things didn’t seem too bad.
 
