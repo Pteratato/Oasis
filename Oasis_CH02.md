@@ -54,7 +54,7 @@ Despite the whispers of winter in the breeze, spirits were high; the Octavian ha
 
 And so the Sprawl was a buzzing hive of preparation – cleaning, building, fixing, creating, and gathering literally anything that might be useful to *someone*.
 
-Brimwylf, a coyote beastkin with all the energy of youth, was perhaps the liveliest of all of them, and he sprinted through the main artery of the Sprawl, dodging people and piles of debris with deft abandon, his arms full of red fabric. He hopped over a barrel that rolled into his path, pivoted sharply into a large tent of stitched canvas, and tossed the red cloth into a pile. He threw his arms up triumphantly, panting.
+Brimjrar, a coyote beastkin with all the energy of youth, was perhaps the liveliest of all of them, and he sprinted through the main artery of the Sprawl, dodging people and piles of debris with deft abandon, his arms full of red fabric. He hopped over a barrel that rolled into his path, pivoted sharply into a large tent of stitched canvas, and tossed the red cloth into a pile. He threw his arms up triumphantly, panting.
 
 “A new record!” he shouted.
 
@@ -62,7 +62,7 @@ Four old ladies stopped their sorting and sewing long enough to clap and murmur 
 
 “What a lovely texture!” One said, hobbling over to stroke the shimmering red cloth. “Not many stains, ah, what a find, what a find.”
 
-“Thanks, *sitva Nani*,” Brimwylf returned, his black-tipped tail wagging a little at the praise. “I can’t believe what the city folk throw out!”
+“Thanks, *sitva Nani*,” Brimjrar returned, his black-tipped tail wagging a little at the praise. “I can’t believe what the city folk throw out!”
 
 He ran a hand - slightly padded like those of his animal kin - through his shaggy black hair, his fur-tipped ears folding back. He stuck out his chin and in a deep, theatrical voice accented in the way of the Octavians, said, “Oy, butler. Ho, butler! See this sheet here? There’s a bit of a stain - yes, yes, I know I’ve just bought it. What’s that? A washing? Oh, no, that won’t be necessary, just throw it out.”
 
@@ -70,7 +70,7 @@ He pantomimed tossing the unwanted object over the wall, and all the ladies cack
 
 “Toss out that radio, too, you know the one, with the mildly jiggling knob. Ah yes, and that *vahse* with the chip in the corner! Can’t have that tarnishing our sitting room, now can we?”
 
-The wiry beastkin exaggerated the motion of picking up something heavy and hefting it over the wall, relishing the chuckles of his audience. He kept up the gag long after it was funny and, when he finally noticed no one was paying attention, he stopped the game to collect his pay for the day’s labor. Nani handed over a package wrapped in paper, and Brimwylf peeked inside to find a fresh loaf of bread and two seagull eggs. The old lady smiled kindly, tapping one of the eggs.
+The wiry beastkin exaggerated the motion of picking up something heavy and hefting it over the wall, relishing the chuckles of his audience. He kept up the gag long after it was funny and, when he finally noticed no one was paying attention, he stopped the game to collect his pay for the day’s labor. Nani handed over a package wrapped in paper, and Brimjrar peeked inside to find a fresh loaf of bread and two seagull eggs. The old lady smiled kindly, tapping one of the eggs.
 
 “Be a dear and make sure Hahn’s little boy gets one of those, will you? It’s not easy doing all that growing in a place like this.”
 
@@ -78,51 +78,51 @@ The wiry beastkin exaggerated the motion of picking up something heavy and hefti
 
 The young coyote folded the paper back over his wages, thanked the ladies again, and then bounded back off down the narrow roads of the Sprawl to find his brother.
 
-*Home* was such a loose term here in the Sprawl, but in his fifteen years of life Brimwylf couldn’t recall ever feeling more at home anywhere. There was a little piece of the Sprawl just for their family unit – him and Janus in one shack, Hahn and Anna and Jae in another – and out front there was a fire pit and a clothesline, and in the back their own mini junkyard, a shed, and Anna’s garden. The shacks were painted with graffiti animals by Brimwylf himself – he felt like it added a nice touch – and the air often smelled of stew and salted meats. Hahn could be challenging to get along with, and Brimwylf was frequently saddled with the task of babysitting Jae while the adults were busy, but this was a chore he never minded much.
+*Home* was such a loose term here in the Sprawl, but in his fifteen years of life Brimjrar couldn’t recall ever feeling more at home anywhere. There was a little piece of the Sprawl just for their family unit – him and Jakim in one shack, Hahn and Anna and Jae in another – and out front there was a fire pit and a clothesline, and in the back their own mini junkyard, a shed, and Anna’s garden. The shacks were painted with graffiti animals by Brimjrar himself – he felt like it added a nice touch – and the air often smelled of stew and salted meats. Hahn could be challenging to get along with, and Brimjrar was frequently saddled with the task of babysitting Jae while the adults were busy, but this was a chore he never minded much.
 
-Brimwylf jogged down the path to the shack he shared with his brother, and his keen nose picked up a waft of floral perfume. It was faded now, and so he ventured to poke his head through the hanging flap of tarp that constituted their door.
+Brimjrar jogged down the path to the shack he shared with his brother, and his keen nose picked up a waft of floral perfume. It was faded now, and so he ventured to poke his head through the hanging flap of tarp that constituted their door.
 
-“Janus!” he called. “How’s Mrs. Mourney doin’?”
+“Jakim!” he called. “How’s Mrs. Mourney doin’?”
 
-Brimwylf’s brother was a tall, lean coyote beastkin with olive-toned skin and long, dark dreadlocks, and he could almost pass as human if he had the mind to. He was riddled with piercings, both traditional and contemporary, and his exposed arms had bands of tattoos in the manner of the desert tribes. He was putting on a tattered belt that was so stretched thin, it was wildly unhelpful in keeping his pants up.
+Brimjrar’s brother was a tall, lean coyote beastkin with olive-toned skin and long, dark dreadlocks, and he could almost pass as human if he had the mind to. He was riddled with piercings, both traditional and contemporary, and his exposed arms had bands of tattoos in the manner of the desert tribes. He was putting on a tattered belt that was so stretched thin, it was wildly unhelpful in keeping his pants up.
 
-“Better these days, seems like. She brought ya something,” Janus replied.
+“Better these days, seems like. She brought ya something,” Jakim replied.
 
 “Whaaat? Where is it? You holdin’ out on me??”
 
-“Hang on, I should make the bed first,” Janus said, turning to the mess of sheets. With a single motion, he whisked the fabric away, leaving the crates underneath bare. “There, all done.”
+“Hang on, I should make the bed first,” Jakim said, turning to the mess of sheets. With a single motion, he whisked the fabric away, leaving the crates underneath bare. “There, all done.”
 
-“Janus!” Brimwylf exclaimed in exasperation, practically dancing around his brother in a circle. “Where. Is. The. Gift?!”
+“Jakim!” Brimjrar exclaimed in exasperation, practically dancing around his brother in a circle. “Where. Is. The. Gift?!”
 
-Janus couldn’t help but to smile at his brother’s excitement. Childhood in the Sprawl… well, there usually wasn’t much of one, but he’d always done his best to make sure Brimwylf wasn’t forced to grow up too fast. Moments like these, with his brother’s exuberance and enthusiasm, he felt like he’d done something right.
+Jakim couldn’t help but to smile at his brother’s excitement. Childhood in the Sprawl… well, there usually wasn’t much of one, but he’d always done his best to make sure Brimjrar wasn’t forced to grow up too fast. Moments like these, with his brother’s exuberance and enthusiasm, he felt like he’d done something right.
 
-“Alright, alright, keep your fur on! Here you go,” Janus said, pulling from his back pockets two glass bottles with elegant wax seals. “Some of the finest ink money – *or charm* – can buy. Just in time for the festival!”
+“Alright, alright, keep your fur on! Here you go,” Jakim said, pulling from his back pockets two glass bottles with elegant wax seals. “Some of the finest ink money – *or charm* – can buy. Just in time for the festival!”
 
-Brimwylf’s eyes grew wide, and he snatched the bottles as if they might disappear into thin air. “No way!” he exclaimed. “And red?? This is awesome – man, Mrs. Mourney must really like you.”
+Brimjrar’s eyes grew wide, and he snatched the bottles as if they might disappear into thin air. “No way!” he exclaimed. “And red?? This is awesome – man, Mrs. Mourney must really like you.”
 
-Janus shrugged, but smiled mysteriously and said, “I know a few tricks.”
+Jakim shrugged, but smiled mysteriously and said, “I know a few tricks.”
 
-The younger beastkin was carrying on about how much better his tattoos would be now, and how many new designs he could do with a second color, and how fine the quality was, but Janus wasn’t listening. His sharp hearing was picking up a different sound; a soft sniffling.
+The younger beastkin was carrying on about how much better his tattoos would be now, and how many new designs he could do with a second color, and how fine the quality was, but Jakim wasn’t listening. His sharp hearing was picking up a different sound; a soft sniffling.
 
 “Brims,” he said, and held up a hand for his brother to stop talking. “Come on, I think we should check on Anna.”
 
-Hahn’s wife was late into an unexpected pregnancy, and it had been a hard one for her, and for them. The brothers didn’t intend to pry, but they could hear the couple fighting occasionally, and they could hear Anna crying, and there was no greater fear for a young mother than an uncertain future. When Hahn was away, she immersed herself in work; growing, mending, tending, and caring for all of them, but it became more and more difficult, what with baking a new little Sprawler and taking care of Jae. Janus did his best to step up and help; she was like a sister, and they were all in this together.
+Hahn’s wife was late into an unexpected pregnancy, and it had been a hard one for her, and for them. The brothers didn’t intend to pry, but they could hear the couple fighting occasionally, and they could hear Anna crying, and there was no greater fear for a young mother than an uncertain future. When Hahn was away, she immersed herself in work; growing, mending, tending, and caring for all of them, but it became more and more difficult, what with baking a new little Sprawler and taking care of Jae. Jakim did his best to step up and help; she was like a sister, and they were all in this together.
 
 “Anna?” the older coyote called out gently when they reached her shack door. It wasn’t latched, and he didn’t hesitate to push it open.
 
-In a rickety, three-legged chair propped on a crate, Anna sat, her arms cradling her stomach and tears trailing down her cheeks. She looked up at Janus and brushed at her eyes with a long sleeve.
+In a rickety, three-legged chair propped on a crate, Anna sat, her arms cradling her stomach and tears trailing down her cheeks. She looked up at Jakim and brushed at her eyes with a long sleeve.
 
-“S-sorry, she’s just… She’s just not moving much and I’m too *small*, Janus, she’s not growing right, a-and I–”
+“S-sorry, she’s just… She’s just not moving much and I’m too *small*, Jakim, she’s not growing right, a-and I–”
 
-“Shhh,” Janus soothed, and he didn’t waste any time in going to her side. He knelt on the dirt floor in front of her and placed an ear against her round stomach.
+“Shhh,” Jakim soothed, and he didn’t waste any time in going to her side. He knelt on the dirt floor in front of her and placed an ear against her round stomach.
 
-Janus heard the flutter of the baby’s tiny heartbeat, and he smiled gently. “She’s doing just fine. Strong little heartbeat there – she’s gonna be a fighter like her dad.”
+Jakim heard the flutter of the baby’s tiny heartbeat, and he smiled gently. “She’s doing just fine. Strong little heartbeat there – she’s gonna be a fighter like her dad.”
 
 He stood and gave Anna a reassuring kiss on the forehead.
 
-“Thank you, Janus,” she murmured, still wiping at her eyes. She was still worried, but his words were comforting. “For everything.”
+“Thank you, Jakim,” she murmured, still wiping at her eyes. She was still worried, but his words were comforting. “For everything.”
 
-“Anna, look at this!” Brimwylf enthused in a loud whisper, trying not to wake the sleeping boy on the bed in his excitement. “Inks from Octavia! And red! We’ll be able to bring back the Mark of the Scorpion story!”
+“Anna, look at this!” Brimjrar enthused in a loud whisper, trying not to wake the sleeping boy on the bed in his excitement. “Inks from Octavia! And red! We’ll be able to bring back the Mark of the Scorpion story!”
 
 This time it was Anna who smiled, and she carefully stood, patting her round belly. For how late she was in her pregnancy, she *was* small, though she did her best to eat well and, between all of them, they never allowed her to go hungry. The baby moved some, but never enough, never enough to assure her that everything was alright in there, but all they could do was listen for the heartbeat and keep going.
 
@@ -192,39 +192,39 @@ Dirt tracks branched off from Main Street and led down little alleys, most dark 
 
 The little alley leading down into Knob Nook opened into a wide space, where a fire crackled low in a pit and many travelers were seated on logs, listening to a story.
 
-“Nik and his band of rogues could see the wavering green trees in the distance,” Janus recited to a rapt audience, keeping his voice low and mysterious, “but from the top of the plateau they could also see Fura’s Scar, a crevasse that slices the desert in two all the way from Rasalhague to the Tzorim Basin. Nik felt his heart drop – his clues had placed Sappath el-Sappah on *this* side of the Scar, not that. He hung his head and climbed down the plateau to inform his comrades of this new impasse.”
+“Nik and his band of rogues could see the wavering green trees in the distance,” Jakim recited to a rapt audience, keeping his voice low and mysterious, “but from the top of the plateau they could also see Fura’s Scar, a crevasse that slices the desert in two all the way from Rasalhague to the Tzorim Basin. Nik felt his heart drop – his clues had placed Sappath el-Sappah on *this* side of the Scar, not that. He hung his head and climbed down the plateau to inform his comrades of this new impasse.”
 
-Next to Janus, his little brother Brimwylf made the motion of hanging his head and pretending to climb down. Jae, a small and quiet toddler with golden curls, mimicked Brimwylf, partially hidden in the shadows of the other two.
+Next to Jakim, his little brother Brimjrar made the motion of hanging his head and pretending to climb down. Jae, a small and quiet toddler with golden curls, mimicked Brimjrar, partially hidden in the shadows of the other two.
 
 Anna bustled around the guests, fulfilling orders for purslane wine, stew, and oat bread. The stew was a bit thin and the wine was a bit thick, but the food had a homey taste that some of the travelers enjoyed, and many remarked that it reminded them of their mother or their grandmother; it made them sentimental and they tipped well, so Anna kept the pot full.
 
-“But Nik’s comrades would not be deterred!” Janus continued. “After all, if they turned back now, what would they have to show for their struggle? Nothing! They’d given up everything for this journey, surely they could find a way. Let them pack up camp and travel to the edge of the Scar to assess their options.”
+“But Nik’s comrades would not be deterred!” Jakim continued. “After all, if they turned back now, what would they have to show for their struggle? Nothing! They’d given up everything for this journey, surely they could find a way. Let them pack up camp and travel to the edge of the Scar to assess their options.”
 
-Brimwylf made the motion of pulling down a tent. Jae made the motion of rolling up a bed.
+Brimjrar made the motion of pulling down a tent. Jae made the motion of rolling up a bed.
 
 Anna dropped violet little mushrooms into the stew, and they were so delicate that they dissolved in the hot broth instantly, swirling with the herbs and cooked rabbit and wild onion. These little mushrooms, paired with the wine, were just enough to keep the guests relaxed, imaginative, and in a state of wistful reflection.
 
-“Giant spiders!” Janus shouted, and Brimwylf made his best skittering sounds. “Crawling all along the walls of the Scar, each large enough to suck a man blood-dry. Nik and his men could see them swarming deep in the chasm, waiting red-eyed in the darkness for any who dared cross, blocking their path to the oasis of Shappath el-Shappah. Out of options now, he closed his eyes and prayed.”
+“Giant spiders!” Jakim shouted, and Brimjrar made his best skittering sounds. “Crawling all along the walls of the Scar, each large enough to suck a man blood-dry. Nik and his men could see them swarming deep in the chasm, waiting red-eyed in the darkness for any who dared cross, blocking their path to the oasis of Shappath el-Shappah. Out of options now, he closed his eyes and prayed.”
 
-Brimwylf bowed his head. Jae clasped his hands.
+Brimjrar bowed his head. Jae clasped his hands.
 
 Anna passed out wooden bowls of stew and refilled cups of wine. She came to a priest sitting alone on a log, but he raised a hand in refusal and said, “Just bread, please.”
 
-“‘Dearest Alil, most beautiful Alil, Mother of the Sands, lend me your magic once again,’” Janus prayed. “‘Please help us conquer this trial.’ But Alil was a fickle goddess, and she didn’t want to reveal her fondness for a mortal, so Nik prayed and prayed and prayed with no answer. For three days and three nights, without eating or sleeping, Nik showered Alil with lavish praise and begged her divine grace. Finally, touched by his perseverance, she descended and said, ‘Courageous Nik, no other mortal compares with your bravery and tenacity. For your wild spirit, I will grant you this gift, the Mark of the Stallion, and with it you’ll be able to run faster and jump farther than any before you, and have the strength to carry men across the Scar.’ And as Alil placed a gentle kiss on Nik’s head, the mark of the Stallion appeared on his body.”
+“‘Dearest Alil, most beautiful Alil, Mother of the Sands, lend me your magic once again,’” Jakim prayed. “‘Please help us conquer this trial.’ But Alil was a fickle goddess, and she didn’t want to reveal her fondness for a mortal, so Nik prayed and prayed and prayed with no answer. For three days and three nights, without eating or sleeping, Nik showered Alil with lavish praise and begged her divine grace. Finally, touched by his perseverance, she descended and said, ‘Courageous Nik, no other mortal compares with your bravery and tenacity. For your wild spirit, I will grant you this gift, the Mark of the Stallion, and with it you’ll be able to run faster and jump farther than any before you, and have the strength to carry men across the Scar.’ And as Alil placed a gentle kiss on Nik’s head, the mark of the Stallion appeared on his body.”
 
-Brimwylf pulled up the leg of his trousers to expose a tattoo of a leaping horse. Jae jumped over a crack in the dry ground.
+Brimjrar pulled up the leg of his trousers to expose a tattoo of a leaping horse. Jae jumped over a crack in the dry ground.
 
 Anna sat down next to the priest, who was smiling and quietly asking her questions about the Sprawl, herself, her friends, and her son. She was grateful for the opportunity to sit for a while and talk to the friendly stranger.
 
 “Using the Mark of the Stallion, Nik was able to put each man on his back and leap the entire width of the Scar, and spiders spat clumps of web to snatch him, but he landed safely on the other side. He did this again and again until each man was safely across, and in the distance they could see Sappath el-Sappah, and now nothing barred their path to the empress' treasure – at least, as far as they could tell…”
 
-“Come back tomorrow for the exciting conclusion!” Brimwylf announced. “But in the meantime, get a Mark of the Stallion for only 5 copper – it’s a real tribal tattoo done with ancient techniques – and represents the grace of Alil blessing you on your journey. Some swear there’s enough magic in the mark to make you run faster!”
+“Come back tomorrow for the exciting conclusion!” Brimjrar announced. “But in the meantime, get a Mark of the Stallion for only 5 copper – it’s a real tribal tattoo done with ancient techniques – and represents the grace of Alil blessing you on your journey. Some swear there’s enough magic in the mark to make you run faster!”
 
-Janus paused and glanced towards Anna, who was still talking in low tones to the priest, but now she seemed distressed and saddened. Her eyes were wet and her hands made nervous motions against her stomach. Brows furrowing, he stepped in her direction, but a man blocked his path, chattering excitedly.
+Jakim paused and glanced towards Anna, who was still talking in low tones to the priest, but now she seemed distressed and saddened. Her eyes were wet and her hands made nervous motions against her stomach. Brows furrowing, he stepped in her direction, but a man blocked his path, chattering excitedly.
 
 “What a rousing tale! Are there other Marks of Alil? I must admit, I’ve never had the courage– b-but I’ve always wanted to, you know – I have some Steppe warrior in my blood! A lil’, o-on my mother’s side, I mean.”
 
-Janus beamed at the man. “Ahh, I can see it in your jawline, yes, no mistaking such a rugged shape. Tonight the Mother of the Sands is calling you to your destiny. Come inside, all of you, find the Mark that speaks to you most. My brother studied under a wise shaman, there’s no one more adept in the old ways, and maybe you’d like a piercing…”
+Jakim beamed at the man. “Ahh, I can see it in your jawline, yes, no mistaking such a rugged shape. Tonight the Mother of the Sands is calling you to your destiny. Come inside, all of you, find the Mark that speaks to you most. My brother studied under a wise shaman, there’s no one more adept in the old ways, and maybe you’d like a piercing…”
 
 And the brothers led the interested guests into the home-turned-studio to show off their selection of goods and services.
 
@@ -238,7 +238,7 @@ In her mind, there was no man alive stronger than her Hahn, but… with that str
 
 No one else could’ve gotten them out of Sobretses alive, she truly believed that.
 
-Her marriage to Hahn had been more for utility than love. She *did* have love for him, and for Janus and Brimwylf, and for many of the other Sprawlers she’d spent these years of hardship with. But…
+Her marriage to Hahn had been more for utility than love. She *did* have love for him, and for Jakim and Brimjrar, and for many of the other Sprawlers she’d spent these years of hardship with. But…
 
 But…
 
