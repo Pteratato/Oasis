@@ -11,13 +11,13 @@ Hahn’s hand clenched around a fistful of Jakim’s shirt, and he heaved the sl
 
 *“What the fuck is this!?”* Hahn shouted, holding up a crumpled piece of paper with Anna’s disjointed, childlike scrawl. *“Who the fuck is he!?”*
 
-“Hahn! Get your goddamn hands off me!” Jakim growled back, slamming his fist into Hahn’s abdomen and forcing the air from his lungs. Hahn gasped and released the coyote, but rapidly recovered and struck a heavy blow against Jakim’ jaw. Jakim crumbled against the wall but he knew every second counted. He threw his weight into Hahn’s chest and they both staggered back, falling into a makeshift bed of plastic crates that crumbled under the blow. They fell into a chaotic pile of sheets and crates and fists and snarls, each trying to get the upper hand on the other.
+“Hahn! Get your goddamn hands off me!” Jakim growled back, slamming his fist into Hahn’s abdomen and forcing the air from his lungs. Hahn gasped and released the coyote, but rapidly recovered and struck a heavy blow against Jakim’s jaw. Jakim crumbled against the wall but he knew every second counted. He threw his weight into Hahn’s chest and they both staggered back, falling into a makeshift bed of plastic crates that crumbled under the blow. They fell into a chaotic pile of sheets and crates and fists and snarls, each trying to get the upper hand on the other.
 
 “Stop fighting!” Brimjrar cried desperately from the other side of the room, but his voice seemed far away, unable to penetrate the conflict. “Both of you, stop!”
 
 “*Where’s my wife?*” Hahn snarled as they struggled among the bedding and overturned crates. He had the upper hand in brute strength, but Jakim was quick and precise, making him formidable even against the hunter’s wild fury. Jakim evaded as long as he could, but it wasn’t long before Hahn managed to pin the coyote beneath his greater weight.
 
-“You said you would protect them!” the enraged Hahn shouted, smashing his fist into Jakim’ jaw. “Where is she!?”
+“You said you would protect them!” the enraged Hahn shouted, smashing his fist into Jakim’s jaw. “Where is she!?”
 
 “Fuck if I know!” Jakim shouted back, spitting a mouthful of blood. He slammed a knee into Hahn’s groin and the hunter recoiled in pain. The coyote was up in an instant and landed a solid punch into Hahn’s face, holding back nothing.
 
