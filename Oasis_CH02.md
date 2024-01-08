@@ -78,7 +78,7 @@ The wiry beastkin exaggerated the motion of picking up something heavy and hefti
 
 The young coyote folded the paper back over his wages, thanked the ladies again, and then bounded back off down the narrow roads of the Sprawl to find his brother.
 
-*Home* was such a loose term here in the Sprawl, but in his fifteen years of life Brimjrar couldn’t recall ever feeling more at home anywhere. There was a little piece of the Sprawl just for their family unit – him and Jakim in one shack, Hahn and Anna and Jae in another – and out front there was a fire pit and a clothesline, and in the back their own mini junkyard, a shed, and Anna’s garden. The shacks were painted with graffiti animals by Brimjrar himself – he felt like it added a nice touch – and the air often smelled of stew and salted meats. Hahn could be challenging to get along with, and Brimjrar was frequently saddled with the task of babysitting Jae while the adults were busy, but this was a chore he never minded much.
+*Home* was such a loose term here in the Sprawl, but in his fifteen years of life Brimjrar couldn’t recall ever feeling more at home anywhere. There was a little piece of the Sprawl just for their family unit – him and Jakim in one shack, Hahn and Anna and Jonas in another – and out front there was a fire pit and a clothesline, and in the back their own mini junkyard, a shed, and Anna’s garden. The shacks were painted with graffiti animals by Brimjrar himself – he felt like it added a nice touch – and the air often smelled of stew and salted meats. Hahn could be challenging to get along with, and Brimjrar was frequently saddled with the task of babysitting Jonas while the adults were busy, but this was a chore he never minded much.
 
 Brimjrar jogged down the path to the shack he shared with his brother, and his keen nose picked up a waft of floral perfume. It was faded now, and so he ventured to poke his head through the hanging flap of tarp that constituted their door.
 
@@ -106,7 +106,7 @@ The younger beastkin was carrying on about how much better his tattoos would be 
 
 “Brims,” he said, and held up a hand for his brother to stop talking. “Come on, I think we should check on Anna.”
 
-Hahn’s wife was late into an unexpected pregnancy, and it had been a hard one for her, and for them. The brothers didn’t intend to pry, but they could hear the couple fighting occasionally, and they could hear Anna crying, and there was no greater fear for a young mother than an uncertain future. When Hahn was away, she immersed herself in work; growing, mending, tending, and caring for all of them, but it became more and more difficult, what with baking a new little Sprawler and taking care of Jae. Jakim did his best to step up and help; she was like a sister, and they were all in this together.
+Hahn’s wife was late into an unexpected pregnancy, and it had been a hard one for her, and for them. The brothers didn’t intend to pry, but they could hear the couple fighting occasionally, and they could hear Anna crying, and there was no greater fear for a young mother than an uncertain future. When Hahn was away, she immersed herself in work; growing, mending, tending, and caring for all of them, but it became more and more difficult, what with baking a new little Sprawler and taking care of Jonas. Jakim did his best to step up and help; she was like a sister, and they were all in this together.
 
 “Anna?” the older coyote called out gently when they reached her shack door. It wasn’t latched, and he didn’t hesitate to push it open.
 
@@ -194,25 +194,25 @@ The little alley leading down into Knob Nook opened into a wide space, where a f
 
 “Nik and his band of rogues could see the wavering green trees in the distance,” Jakim recited to a rapt audience, keeping his voice low and mysterious, “but from the top of the plateau they could also see Fura’s Scar, a crevasse that slices the desert in two all the way from Rasalhague to the Tzorim Basin. Nik felt his heart drop – his clues had placed Sappath el-Sappah on *this* side of the Scar, not that. He hung his head and climbed down the plateau to inform his comrades of this new impasse.”
 
-Next to Jakim, his little brother Brimjrar made the motion of hanging his head and pretending to climb down. Jae, a small and quiet toddler with golden curls, mimicked Brimjrar, partially hidden in the shadows of the other two.
+Next to Jakim, his little brother Brimjrar made the motion of hanging his head and pretending to climb down. Jonas, a small and quiet toddler with golden curls, mimicked Brimjrar, partially hidden in the shadows of the other two.
 
 Anna bustled around the guests, fulfilling orders for purslane wine, stew, and oat bread. The stew was a bit thin and the wine was a bit thick, but the food had a homey taste that some of the travelers enjoyed, and many remarked that it reminded them of their mother or their grandmother; it made them sentimental and they tipped well, so Anna kept the pot full.
 
 “But Nik’s comrades would not be deterred!” Jakim continued. “After all, if they turned back now, what would they have to show for their struggle? Nothing! They’d given up everything for this journey, surely they could find a way. Let them pack up camp and travel to the edge of the Scar to assess their options.”
 
-Brimjrar made the motion of pulling down a tent. Jae made the motion of rolling up a bed.
+Brimjrar made the motion of pulling down a tent. Jonas made the motion of rolling up a bed.
 
 Anna dropped violet little mushrooms into the stew, and they were so delicate that they dissolved in the hot broth instantly, swirling with the herbs and cooked rabbit and wild onion. These little mushrooms, paired with the wine, were just enough to keep the guests relaxed, imaginative, and in a state of wistful reflection.
 
 “Giant spiders!” Jakim shouted, and Brimjrar made his best skittering sounds. “Crawling all along the walls of the Scar, each large enough to suck a man blood-dry. Nik and his men could see them swarming deep in the chasm, waiting red-eyed in the darkness for any who dared cross, blocking their path to the oasis of Shappath el-Shappah. Out of options now, he closed his eyes and prayed.”
 
-Brimjrar bowed his head. Jae clasped his hands.
+Brimjrar bowed his head. Jonas clasped his hands.
 
 Anna passed out wooden bowls of stew and refilled cups of wine. She came to a priest sitting alone on a log, but he raised a hand in refusal and said, “Just bread, please.”
 
 “‘Dearest Alil, most beautiful Alil, Mother of the Sands, lend me your magic once again,’” Jakim prayed. “‘Please help us conquer this trial.’ But Alil was a fickle goddess, and she didn’t want to reveal her fondness for a mortal, so Nik prayed and prayed and prayed with no answer. For three days and three nights, without eating or sleeping, Nik showered Alil with lavish praise and begged her divine grace. Finally, touched by his perseverance, she descended and said, ‘Courageous Nik, no other mortal compares with your bravery and tenacity. For your wild spirit, I will grant you this gift, the Mark of the Stallion, and with it you’ll be able to run faster and jump farther than any before you, and have the strength to carry men across the Scar.’ And as Alil placed a gentle kiss on Nik’s head, the mark of the Stallion appeared on his body.”
 
-Brimjrar pulled up the leg of his trousers to expose a tattoo of a leaping horse. Jae jumped over a crack in the dry ground.
+Brimjrar pulled up the leg of his trousers to expose a tattoo of a leaping horse. Jonas jumped over a crack in the dry ground.
 
 Anna sat down next to the priest, who was smiling and quietly asking her questions about the Sprawl, herself, her friends, and her son. She was grateful for the opportunity to sit for a while and talk to the friendly stranger.
 
@@ -232,7 +232,7 @@ And the brothers led the interested guests into the home-turned-studio to show o
 
 Within an hour Knob Nook was quiet, the fire now just a smolder in the pit and the last few guests getting their Marks inked by the coyote brothers.
 
-Anna was in her shack with Jae, moving around quickly, packing a few precious items into a small bag, her hands shaking and her heart pounding. Though not due back for another day, she half expected Johannes to burst through the door at any moment, furious that she would do this, and every sound made her jump.
+Anna was in her shack with Jonas, moving around quickly, packing a few precious items into a small bag, her hands shaking and her heart pounding. Though not due back for another day, she half expected Johannes to burst through the door at any moment, furious that she would do this, and every sound made her jump.
 
 In her mind, there was no man alive stronger than her Hahn, but… with that strength also came some difficulties. He was headstrong, and temperamental at times, but…
 
@@ -242,17 +242,17 @@ Her marriage to Hahn had been more for utility than love. She *did* have love fo
 
 But…
 
-She loved Jae more.
+She loved Jonas more.
 
 She loved her unborn daughter more.
 
 The whole universe was in those little hands, and there was simply no comparison.
 
-Crying softly now, she looked at the tokens in her hand, stamped with the skull-headed crow. There were two of them, one for her and one for Jae, and the priest said they would get them into Octavia. He seemed honest, and…
+Crying softly now, she looked at the tokens in her hand, stamped with the skull-headed crow. There were two of them, one for her and one for Jonas, and the priest said they would get them into Octavia. He seemed honest, and…
 
 She was afraid of being here another winter. She was afraid of giving birth again, and she was afraid for the baby’s life. She had to believe that they could make it inside the wall, and she would do anything to make that happen, to get to a place where they could have a proper doctor, and food, and just a chance for a real life.
 
-Jae was clutching her legs and asking what was wrong, but Anna didn’t reply. She picked up a pencil in one hand and laid out a piece of paper. Her hand was poised to mark the page, but she hesitated.
+Jonas was clutching her legs and asking what was wrong, but Anna didn’t reply. She picked up a pencil in one hand and laid out a piece of paper. Her hand was poised to mark the page, but she hesitated.
 
 The priest had explicitly instructed her not to speak to anyone, nor to leave any messages behind, or else the operation might be jeopardized. But didn’t Hahn deserve to know something?
 
