@@ -94,7 +94,7 @@ Father Barrabas, a dark-skinned, aging priest, was sitting at a writing desk jus
 
 “Ahhh,” rumbled the priest with a chuckle. He was wrinkled from long days in the sun, but strong in body and mind, and his voice caught on the rocks in his chest. “Where ya gonna head next? Outland’s not gonna be an easy place to make a livin’.”
 
-Johannes shrugged nonchalantly. “Octavia ain’t gonna open up, no reason to stay. Maybe we’ll move out here and be neighbors. Janus an’ I’re both handy with mechanics, ‘n you know the pups are a fan of y’all.”
+Johannes shrugged nonchalantly. “Octavia ain’t gonna open up, no reason to stay. Maybe we’ll move out here and be neighbors. Jakim an’ I’re both handy with mechanics, ‘n you know the pups are a fan of y’all.”
 
 Father Barrabas smiled sincerely, as if the thought was truly a welcome one. Mennuin’s Outpost was left alone by the Octavian government on the stipulation that it did not expand, though, so they both knew that this proposed scenario was an unlikely one.
 
@@ -118,8 +118,8 @@ Once they’d exhausted every bit of news, Mennuin allowed Johannes the use of h
 
 Johannes settled into the hard, itchy cot and tucked his arms behind his head. He stared up at the small, barred ventilation window towards the top of the shack, moonlight streaming inside. He was surrounded by canned food and junk, moth-eaten leather, and the musty smell of mildew. He was pretty sure there were mites in his cot, and the thin sheet was not near enough to protect from the coolness of the autumn night. But Johannes was not uncomfortable here.
 
-He closed his eyes and thought of his family; his wife Anna, and their little son Jae. The situation for the Sprawl was precarious for all of them, and they all felt something uncanny on the horizon, something dark and creeping that they couldn’t quite identify. Was the threat of winter? Was it some unconscious instinct of a harsh season, something promised in the wind, maybe? \
- \
+He closed his eyes and thought of his family; his wife Anna, and their little son Jae. The situation for the Sprawl was precarious for all of them, and they all felt something uncanny on the horizon, something dark and creeping that they couldn’t quite identify. Was the threat of winter? Was it some unconscious instinct of a harsh season, something promised in the wind, maybe? 
+ 
 But in this moment, after the success of a bountiful hunt and bags full of supplies, with the waning relaxation of the flower still working its way through his system, and the smell of Suprex in the air, things didn’t seem too bad.
 
 
