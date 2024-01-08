@@ -12,7 +12,7 @@ The event was upon him now and he mentally ran those simulations again, finding 
 
 Supplication.
 
-“Hey, Janus,” he directed to his traveling companion, “you sure we didn’t pass the damn thing?”
+“Hey, Jakim,” he directed to his traveling companion, “you sure we didn’t pass the damn thing?”
 
 The lesser therianthrope cast a glance towards the Wall, his coyote ears pricking forward to pick up any sounds. His olive skin was beaded with sweat and his dreadlocks were tied back, but neither offered much reprieve from the autumn sun mercilessly beating down.
 
@@ -22,7 +22,7 @@ The lesser therianthrope cast a glance towards the Wall, his coyote ears prickin
 
 They’d been following the perimeter of the Wall for the better part of the day, and now the sun was high and hot above them, apparently having forgotten all about winter on the horizon. The landscape on this side of the Wall was eerily barren, scorched clean for a mile out by flamethrower-wielding special forces tasked with burning every hint of vegetation. There was no shade, no greenery, no life at all – even the insects had largely fled the area. The Wall, too, seemed oddly abandoned, without any suggestion of a wall guard or sentry. The silence was deafening, and they both felt the hairs prickle at their necks and forearms. Breaking it with chatter was even more unnerving, as if the land itself wanted to suppress any sound.
 
-There wasn’t much to discuss, anyway; they were rushing headlong without a real plan, and they knew it. Neither knew what awaited on the other side of that Wall, and so whatever plan they conceived felt naive and inadequate. Hahn would have to survive a week of harrowing combat before he even had freedom of movement, and Janus would have the burden of his little brother in addition to any restrictions placed on him by the militia. And so, they simply didn’t discuss it.
+There wasn’t much to discuss, anyway; they were rushing headlong without a real plan, and they knew it. Neither knew what awaited on the other side of that Wall, and so whatever plan they conceived felt naive and inadequate. Hahn would have to survive a week of harrowing combat before he even had freedom of movement, and Jakim would have the burden of his little brother in addition to any restrictions placed on him by the militia. And so, they simply didn’t discuss it.
 
 They didn’t discuss the possibility of death. They didn’t discuss what the Sprawlers would do without them. They didn’t discuss whatever the hell a *wasting dragon* was. And they most certainly didn’t discuss the copper token stamped with the skulled crow.
 
@@ -38,11 +38,11 @@ And then, God willing, finally get the Sprawl caravan moving again. They could h
 
 That was what they had; a bullet list of nebulous, ambitious objectives, and any one of them could create an insurmountable impasse. 
 
-Finally, after so many hours of trekking through the rocks beneath the blazing sun, covered with sweat and blowing dust, Janus stopped, his ears pricking forward.
+Finally, after so many hours of trekking through the rocks beneath the blazing sun, covered with sweat and blowing dust, Jakim stopped, his ears pricking forward.
 
 “...I think this is it.”
 
-“Praise the Lord,” Hahn mumbled, bastardizing the sign of the cross over his chest. He pulled a large, compound hunting bow from his back and set about preparing the weapon, while Janus paced back and forth along the wall, seeking the perfect location. Finally the coyote stopped and marked an ‘X’ with his boot in the dry ground.
+“Praise the Lord,” Hahn mumbled, bastardizing the sign of the cross over his chest. He pulled a large, compound hunting bow from his back and set about preparing the weapon, while Jakim paced back and forth along the wall, seeking the perfect location. Finally the coyote stopped and marked an ‘X’ with his boot in the dry ground.
 
 “Try here.”
 
@@ -50,17 +50,17 @@ The hunter took his place on the marked spot. He lifted the compound bow and pul
 
 “If a HARE can’t dodge an arrow, we’re doing the lieutenant a favor.”
 
-Hahn loosed the arrow and it zinged over the wall, disappearing somewhere on the other side. They listened for a moment. Finally, Janus nodded. “Nice shot.”
+Hahn loosed the arrow and it zinged over the wall, disappearing somewhere on the other side. They listened for a moment. Finally, Jakim nodded. “Nice shot.”
 
-And the pair walked several meters along the perimeter and fired another one, an identical message taped against the body. They performed this ritual five times before Janus smirked, his ears pivoting. “Listen to that; finally got someone’s attention.”
+And the pair walked several meters along the perimeter and fired another one, an identical message taped against the body. They performed this ritual five times before Jakim smirked, his ears pivoting. “Listen to that; finally got someone’s attention.”
 
 Hahn couldn’t hear a thing.
 
-“Only HAREs hang out this close to the Wall,” Janus continued. “They’ll get the message delivered.”
+“Only HAREs hang out this close to the Wall,” Jakim continued. “They’ll get the message delivered.”
 
 “Want me to shoot ‘em again?”
 
-Janus listened for a moment, then shook his head. “Nah, you got it. The lieutenant’ll ream you a new asshole if you murder one of ‘em. Let’s git before they come with cuffs.”
+Jakim listened for a moment, then shook his head. “Nah, you got it. The lieutenant’ll ream you a new asshole if you murder one of ‘em. Let’s git before they come with cuffs.”
 
 “Well, that’d at least get us on the other side of the damn Wall.”
 
@@ -84,7 +84,7 @@ Hahn glanced at the subordinate HAREs but no trace of sympathy returned his gaze
 
 “Lieutenant,” Hahn pressed more firmly. “We almost *died*.”
 
-“Yet here you are, decidedly not dead.” The lieutenant peered at the Sprawlers emotionlessly, her dark eyes moving from Hahn, to Janus, to Brimwylf, whose ears flattened and tail wagged hopefully. She was known for her strong sense of justice, and fairness, and she acknowledged that the request was more than equitable, and yet…
+“Yet here you are, decidedly not dead.” The lieutenant peered at the Sprawlers emotionlessly, her dark eyes moving from Hahn, to Jakim, to Brimjrar, whose ears flattened and tail wagged hopefully. She was known for her strong sense of justice, and fairness, and she acknowledged that the request was more than equitable, and yet…
 
 “*Why?*” Lieutenant Blackstep asked slowly. She carried the thick, throaty accent of Tzorim, and it rolled heavily over them like molasses. “The militia? The ludus? Why now? You will not have enough time to get into form before the Games.”
 
@@ -94,11 +94,11 @@ No one moved as she continued to study them. The evening was lively outside, wit
 
 “You’d abandon your Sprawl? Your family?” The lieutenant interrogated. “You claimed previously that you would not leave them.”
 
-Janus and Hahn remained silent, unwilling to reveal more than required. Brimwylf, however, visibly winced at the accusation, and the lieutenant beckoned him forward.
+Jakim and Hahn remained silent, unwilling to reveal more than required. Brimjrar, however, visibly winced at the accusation, and the lieutenant beckoned him forward.
 
 “Come, young man, and speak truth. Why do you wish to leave the Sprawl?”
 
-Brims wilted beneath her hard gaze, fidgeting and running his hands through his shaggy, dark hair. He shifted his weight back and forth and glanced helplessly over his shoulder at his brother, but Janus only offered a slight nod of encouragement. 
+Brims wilted beneath her hard gaze, fidgeting and running his hands through his shaggy, dark hair. He shifted his weight back and forth and glanced helplessly over his shoulder at his brother, but Jakim only offered a slight nod of encouragement. 
 
 “W-well…” he started, looking down at his hands. “Sitva Nani says… there’s this monster coming for the Sprawlers… they call it the wasting dragon…”
 
@@ -116,5 +116,5 @@ She turned to Hahn, pulling back into her full stature and peering down at him f
 
 The she-wolf lingered to emphasize the threat hanging in the air. Then, when she could no longer justify inaction, she turned and left, pursuing the reports of the livercrawler. HAREs promptly surrounded them, cuffing their hands and grumbling about bad smells and fleas.
 
-As he was being detained, Hahn nudged Brimwylf and winked at him in a rare display of approval.
+As he was being detained, Hahn nudged Brimjrar and winked at him in a rare display of approval.
 
