@@ -165,7 +165,7 @@ Jakim stopped, his expression surprised at first, then darkening. Finally, he sh
 
 “Shut up, Brims,” Hahn snapped, but there was no real bite to it.
 
-The three of them were inside the ‘junkhouse’, which was what they called the ramshackle building behind Jakim’ shack, smaller than either of their homes but better protected with sheet metal walls. The junkhouse had no windows, just a single electric lantern, so it was perpetually dim and dusty with all the crap they had scavenged over the years.
+The three of them were inside the ‘junkhouse’, which was what they called the ramshackle building behind Jakim’s shack, smaller than either of their homes but better protected with sheet metal walls. The junkhouse had no windows, just a single electric lantern, so it was perpetually dim and dusty with all the crap they had scavenged over the years.
 
 At the center of the junkhouse, taking up almost the entire square footage of it, was their *pharos*.
 
@@ -189,7 +189,7 @@ Hahn scratched absently at the beard sprouting around his jaw.
 
 “You could pass as a merchant from Mhashtra,” Hahn responded. “The old IDs don’t have pictures.”
 
-“And what’re you gonna pass as – my slave?”
+“And what’re you gonna pass as? My slave?”
 
 Hahn crossed his arms, unconsciously drawing himself up to his full height. “Never was good at the role,” he answered, then smirked. “But I’ll do what it takes.”
 
