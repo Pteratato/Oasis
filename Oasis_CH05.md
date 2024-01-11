@@ -98,9 +98,7 @@ Hahn raised his bat again, standing over the man now, his eyes sharp with intent
 
 This pleading managed to cut through the haze of adrenaline, and Hahn hesitated, staring down at the man below him. He then levied a second crushing blow to the man’s knee, and the opponent erupted into a howl of pain and curses. Hahn turned from him towards the fray, slick with sweat and bleeding profusely, but he was numb to it now, the black snake in his gut lending a powerful anesthetic.
 
-The fighters were dwindling, and he knew his true opponents were among the remainder, but it was not yet time for them. He parried with a thin, quick little thing, faster than he but awkward with a club. The little thing was fast and landed a blow to his torso, but it was so weak and full of restraint Hahn didn’t bother blocking. Little things with restraint did not have much chance of toppling him.
-
-The little thing realized this too late, and turned to flee, but the hunter landed a heavy blow against the little back, and he felt the little body crack and crumple to the floor.
+The fighters were dwindling, and he knew his true opponents were among the remainder, but it wasn't time for them. He parried with a quick, shadowy little thing, faster than he but awkward with a club. The little shadow landed a blow to his torso that was so weak and full of restraint Hahn scarcely noticed it. Realizing this, the little shadow turned to flee, but the hunter's bat slammed into the lithe body. It crumpled to the arena floor, dark liquid oozing against the stone. 
 
 Above them, the silent spectators watched like gods, divine overseers hovering beyond the spectacle of pain. They were shadowed beneath the glow of the chandelier, but occasionally glittered with gold, or gems, or bright, watchful eyes. No sound filtered from the upper world to the arena below, but the spectators had little electric lights, which they pointed through the glass at their favorite fighters, indicating and chatting and discussing the exciting possibility of the upcoming games.
 
