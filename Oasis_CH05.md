@@ -31,13 +31,13 @@ Hahn shifted back and forth from one leg to the other to relieve the unpleasant 
 “Alright, let’s see…” he mumbled to himself under his breath, still moving back and forth from one leg to the other. He cast his eyes around the claustrophobic darkness, his senses unable to penetrate the black veil, his mind clouded with fog, and mouthed the words of an old mining song.
 
 *Beneath the violet quarry*  
-*We pick away, pick away*\
-*Far from the light*  \
-*We dig away, dig away\*
-*Towards the Blind One*\
-*We pray for hope, pray for hope* <br>
-*Where even God cannot see*
-*No, even God cannot see*
+*We pick away, pick away*  
+*Far from the light*  
+*We dig away, dig away*  
+*Towards the Blind One*  
+*We pray for hope, pray for hope*   
+*Where even God cannot see*  
+*No, even God cannot see*  
 
 He repeated this in a loop and forced some clarity into his brain. *They* had pulled him up, put him here, he recalled, in some kind of box. He turned around in a full circle, touching the stone walls, cool and moist. The dimensions reminded him of an outhouse in the Sprawl, although it did not have a latrine, depressingly. Two of the sides were wooden doors, opposite each other, and he knocked on them to get a sense of the thickness. Heavy.
 
