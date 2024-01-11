@@ -1,4 +1,4 @@
-https://cdn.discordapp.com/attachments/638778932380041236/1195028745166274570/Oasis_CH45.png?ex=65b2803f&is=65a00b3f&hm=a85303040ede921d255bb76e90ca93996d2c6d173aee64c9ebcacda892116787&
+![!Oasis 5]([https://cdn.discordapp.com/attachments/638778932380041236/1123657745816637511/Oasis_CH11.png](https://cdn.discordapp.com/attachments/638778932380041236/1195028745166274570/Oasis_CH45.png?ex=65b2803f&is=65a00b3f&hm=a85303040ede921d255bb76e90ca93996d2c6d173aee64c9ebcacda892116787&))
 
 ## Chapter 5: The Preliminaries
 
