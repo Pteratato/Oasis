@@ -51,8 +51,7 @@ Ahh, so they were in a large space, then. Well, small spaces set inside a larger
 
 A riotous uproar broke out as the contained fighters thrashed and banged against their cells, shouting and jeering and whooping in anticipation. Hahn’s breath quickened and his eyes sharpened at the energy in the air, but he didn’t participate in the wild exertion. He attempted again to recall how he’d arrived here, but through the haziness of his mind and the demand of the current moment, discarded that effort as momentarily inconsequential.
 
-
-“Mediate for a moment, if you pleasse, on your reasonss for engaging in thiss tournament of ssweat and blood, on the tasste of the Holy Grail at the end of the sstruggle, when you sstand atop the bodiess of your adversariess in victory. Only one may rise and collect that glory and the prize that accompaniess…”
+“Meditate for a moment, if you pleasse, on your reasonss for engaging in thiss tournament of ssweat and blood, on the tasste of the Holy Grail at the end of the sstruggle, when you sstand atop the bodiess of your adversariess in victory. Only one may rise and collect that glory and the prize that accompaniess…”
 
 *Shit, this guy talks too much.* Hahn shifted back and forth, opening and closing his fists.
 
@@ -80,9 +79,9 @@ Clubs were good, but not *that* good.
 
 Hahn emerged slowly, fists raised, and he spied others across the arena who were hanging back, waiting. He even saw one human male give another a friendly wave and smile, as if this were just some Tuesday afternoon at the market. Those people were his real opponents, Hahn realized. 
 
-He didn’t have much time to ponder this as a duo of fighters charged at him, squat bats spiked with nails in hand. One was a thick human male, and the other a greater canid with desert coloration, fierce teeth, and the wild eyes of a jackal. The therianthrope rushed him first and Hahn sidestep the swing, only to feel the nails of the human’s bat bite into his calf, ripping the flesh. Hahn cursed, hitting the ground and rolling just in time to avoid the jackal’s bat striking the floor.
+He didn’t have much time to ponder this as a duo of fighters charged at him, squat bats spiked with nails in hand. One was a thick human male, and the other a greater canid with desert coloration, fierce teeth, and the wild eyes of a jackal. The therianthrope rushed him first and Hahn sidestepped the swing, only to feel the nails of the human’s bat bite into his calf, ripping the flesh. Hahn cursed, hitting the ground and rolling just in time to avoid the jackal’s bat.
 
-The pair worked together, but they were uncoordinated and erratic. The nails scraped and sparked against the ground as Hahn dodged another pair of blows, one aiming for head and one for his knees. He landed a strong kick against the pair of human legs, causing the big fighter to recoil. With a bit of space now, Hahn hopped to his feet and was forced to jump back immediately to avoid the jackal’s swing, whistling a hair's width from his chest. Scarcely did his feet touch the floor before he sprang forward, shoulder rushing the body heavily into a wall and grappling for possession of the bat.
+The pair worked together, but they were uncoordinated and erratic. The nails scraped and sparked against the ground as Hahn dodged another pair of blows, one aiming for his head and one for his knees. He landed a strong kick against the pair of human legs, causing the big fighter to recoil. With a bit of space now, Hahn hopped to his feet and was forced to jump back immediately to avoid the jackal’s swing, whistling a hair's width from his chest. Scarcely did his feet touch the floor before he sprang forward, shoulder rushing the body heavily into a wall and grappling for possession of the bat.
 
 It was all a frenzy of body and fur and snarling teeth. Fangs bit deep into his shoulder, but Hahn didn’t let up. He kept the creature shouldered against the wall, his bare feet digging into the moist stone to find as much purchase as possible. His right hand squeezed the jackal’s neck, digging into its jugular, and the therianthrope dropped the bat, employing both clawed hands to rip at Hahn’s back. The teeth released him, now gasping desperately for air.
 
@@ -90,7 +89,7 @@ Hahn sensed the shadow of the human fall over them and instinctively ducked, an 
 
 The large man raged at the realization that he’d struck his friend. He called, casting glances towards the fallen body, and Hahn did not waste this momentary distraction.
 
-Hahn launched forward, swinging hard. The large man lifted his arms to block the attack and stumbled backwards, uncoordinated. Hahn’s attack missed its mark but he came back again, and on the back swing landed a blow to the fighter’s knees. The man collapsed with a deep groan.
+Hahn launched forward, swinging hard. The man lifted his arms to block the attack and stumbled backwards, uncoordinated. Hahn’s attack missed its mark but he came back again, and on the back swing landed a blow to the fighter’s knees. The man collapsed with a deep groan.
 
 Hahn raised his bat again, standing over the man now, his eyes sharp with intent.
 
