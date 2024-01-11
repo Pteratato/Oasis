@@ -6,7 +6,7 @@ The hunter breathed in the damp scent of the underground, perspiration beading o
 
 *He was underground.*
 
-Even in the blackness there was no mistaking the air of the underground; cool, damp, and stagnant. There was no salt taste in the air, however, which was his only reassurance that he hadn’t been betrayed.
+Even in the blackness there was no mistaking subterranean air; cool, damp, and stagnant. There was no salt taste in the air, however, reassuring him that he hadn't been betrayed.
 
 *He was naked, but not shackled.*
 
@@ -14,7 +14,7 @@ Although there were heavy belts around his wrists for that purpose, his containm
 
 *His body was detoxing, too.*
 
-“Impeccable fucking timing, as always,” he muttered at the thought, moving about restlessly. He’d known, of course, that this would come. It always came eventually – that black snake writhing in his gut as familiar as the salt of thoralite – and this time he wouldn’t be able to haggle for a little dust to cut the edge. There was dread in him now, but also something else — *relief*. This was truly the pivotal moment, when the Wheel turned in a new direction. All of his comforts, such as they had been, were gone now. And there was no going back, he knew. He felt it in his bones; the simple life he’d been building in the Sprawl with his family, with his kin, was gone forever.
+“Impeccable fucking timing, as always,” he muttered at the thought, moving about restlessly. He’d known, of course, that this would come. It always came eventually --- that black snake writhing in his gut as familiar as the salt of thoralite – and this time he wouldn’t be able to haggle for a little dust to cut the edge. There was dread in him now, but also something else — *relief*. This was truly the pivotal moment, when the Wheel turned in a new direction. All of his comforts, such as they had been, were gone now. And there was no going back, he knew. He felt it in his bones; the simple life he’d been building in the Sprawl with his family, with his kin, was gone forever.
 
 Strangely, he didn’t mourn it. 
 
