@@ -3,7 +3,7 @@
 
 I am the Storyteller; listen.
 
-What is a story but the journey of One Who Reaches, who stretches his or her hand towards something, and is willing to face all obstacles to grasp at it. The most beloved tales have a hero at the helm, a gallant figure who represents everything that we are not, a model to fix our eyes upon and mold our lives after. If man is fashioned from the mud of the Earth and the breath of the Creator, the hero must be closer to the Creator, and it is he who inspires us to reach towards the sun.
+What is a story but the journey of one who reaches, who stretches his or her hand towards something, and is willing to face all obstacles to grasp at it? The most beloved of tales often have a hero at the helm, reaching for something grand; a gallant figure who represents everything that we are not, a model to fix our eyes upon and mold our lives after. If it is true that man is the union of the mud of the Earth and the breath of the Creator, then the hero must be closer to the Creator, and it's he who inspires us to reach towards the sun.
 
 Yet in spite of these noble models, the threads of humankind are more tightly woven with the soil of the Earth, the beasts of the forest, and the things beneath, and with these heroes so few and distant, we find ourselves instead surrounded by men of mud.
 
@@ -11,7 +11,7 @@ But nothing is more certain in life than the uncertainty of life; we too easily 
 
  
 
-And these are the best stories, where we have the privilege of witnessing how a man may be molded into his best form, or perhaps into his worst form. How he may ascend or descend, or both, at times. And perhaps we’ll see a little of ourselves in him, as fellow men of mud.
+And these are my favorite stories, where we have the privilege of witnessing how a man may be molded into his best form, or perhaps into his worst form. How he may ascend or descend, or both, at times. And perhaps we’ll see a little of ourselves in him, as fellow men of mud.
 
 
 I am the Storyteller. Let us turn our gaze to this world where men of mud toil endlessly in a desperate attempt to thrive and build, and create something lasting in the short gasp of their existence.
