@@ -1,7 +1,9 @@
 
 ## Chapter 2: The Dilemma
 
-Several days’ travel from Mennuin’s Outpost rested a settlement of a different sort; the Octavian Sprawl, a lesion on the side of the grand city’s stalwart Outer Wall. The Sprawl was a cluster of trash and refugees, an unsightly mass that had washed up against the wall two years ago, and remained huddled there ever since, desperate to stay within the protective range of the Octavian lighthouse.
+Let us turn away from the bawdry display of Mennuin's Outpost, and cast our gaze westward towards the Sea. Found there is another settlement, and more men and women of the mud. 
+
+It was referred to as the Octavian Sprawl, a lesion on the side of the grand city’s stalwart Outer Wall. The Sprawl was a cluster of trash and refugees, an unsightly mass that had washed up against the wall two years ago, and remained huddled there ever since, desperate to stay within the protective range of the Octavian lighthouse.
 
 Charity came from the city every now and then, usually in the form of supplies and foodstuffs, but it was not the sort of aid the refugees were looking for. They wanted to settle *inside* the Outer Wall, in the wide Octavian countryside, but to this the Octavians said, “Soon, soon… the council needs to make the necessary preparations.”
 
