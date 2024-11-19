@@ -1,54 +1,87 @@
-![!Oasis 1](https://cdn.discordapp.com/attachments/638778932380041236/1123657745816637511/Oasis_CH11.png)
-
 ## Chapter 1: The Hunt
 
 
-Sick, sweet, rancid milk. 
+I am the Storyteller; listen.
 
-Johannes’ nose curled at the stench of it, faint but clear. He couldn’t see his quarry yet, but that odor was unmistakable. Downwind from him; one, perhaps two. Parasitic livercrawlers, oleander subtype; *Apocarnididaea Nerium*.
+What is a story but the journey of One Who Reaches, who stretches his or her hand towards something, and is willing to face all obstacles to grasp at it. The most beloved tales have a hero at the helm, a gallant figure who represents everything that we are not, a model to fix our eyes upon and mold our lives after. If man is fashioned from the mud of the Earth and the breath of the Creator, the hero must be closer to the Creator, and it is he who inspires us to reach towards the sun.
 
-*Finally.*
+Yet in spite of these noble models, the threads of humankind are more tightly woven with the soil of the Earth, the beasts of the forest, and the things beneath, and with these heroes so few and distant, we find ourselves instead surrounded by men of mud.
 
-He shifted his gun, an old but well-loved bolt-action rifle, and stepped quietly through the brush. He was not a small man – lean from years of rationing, but tall and strong – and his heavy boots crunched the twigs and drying leaves. Hahn didn’t particularly care if he was heard; he’d left the hunting party, so any carelessness just meant a more entertaining hunt for him.
+But nothing is more certain in life than the uncertainty of life; we too easily forget that we are not stagnant shapes, not men of stone, but constantly changing. And it is often the whim of gods to continue refining a man of mud, to see what could be made of him, because it is in the nature of a Creator to create for no other purpose than seeing what can be made.
 
-*Let ‘em come.*
+ 
 
-The hunt was his home, more than any other place in existence. More than his modest hut with the comforts of food and fire. More than his bed, with the warmth of his wife next to him. More than the community he’d helped build, poor but functioning, full of death and life dancing together in a perpetual waltz of nature versus the human spirit. Winter would bring that waltz to its crescendo, and the game he brought home would determine how many lives witnessed the spring. The hunting wagon was full this trip, bursting with elk and plump hares and squirrels and packs and packs of herbs and edible grasses – all very auspicious – and he’d sent it safely ahead so he could pursue one final prey. 
+And these are the best stories, where we have the privilege of witnessing how a man may be molded into his best form, or perhaps into his worst form. How he may ascend or descend, or both, at times. And perhaps we’ll see a little of ourselves in him, as fellow men of mud.
 
-The brush parted into a wide clearing, and Johannes lowered himself slowly into a crouch, lifting the scope of his rifle. 
 
-A large boar staggered through the grasses in the ravine, stumbling unnaturally, its brain and body overridden by a parasite capable of animating long-dead corpses. This parasite wrapped around the boar’s body in a prison of green vines, emerging from a hole in the creature’s underside and slithering through the dark fur, digging into and out of every orifice. Gorgeous sunset flowers bloomed out of the boar’s back, and that coveted milk dripped from its underside, trailing its stench through the grasses.
+I am the Storyteller. Let us turn our gaze to this world where men of mud toil endlessly in a desperate attempt to thrive and build, and create something lasting in the short gasp of their existence.
 
-The flowers called to Johannes most, tempting him with their folds and colors, a seductive promise. But the milk… *that* was the real money-maker.
+ 
 
-The rifle barrel followed the unsuspecting creature as it waded around the brush, waiting, waiting…
+And look here; one hunter has caught the scent of his quarry.
 
-Hahn fired and squeals of alarm ripped through the trees, the creature emitting shrill imitations of a pain it couldn’t possibly feel. It thrashed about in wild, frantic motions, but there was no escaping the onslaught of bullets. The deadly efficacy of each shot brought a smile to Hahn’s lips, each vibration of the gun a dopamine rush through his body, each *Suprex*-coated bullet ripping through the boar like a knife through butter, sending it into panicked seizures. The nerium parasite, repelled by the toxic effect of the Suprex, made a valiant effort to retract all the vines back inside the carcass of the boar, and its retreat from the animal’s central nervous system cost it what meager ambulatory ability it had possessed. The boar fell over into the grasses, milkweed sap oozing from the bullet holes, as the fatal combination of Johannes’ accuracy and the debilitating Suprex pierced the heart of the nerium. The parasite’s vines tightened up briefly, then relaxed and fell around the corpse of the boar. Silence stretched outward from the scene. 
+ 
 
-There was a moment of stillness; nothing moved. 
+---
 
-Only when he was assured the fight was won did Hahn lower his rifle. As he approached the boar, his eyes caught on the dead sockets of the animal, writhing now with insects. 
+ 
 
-He lingered on this sight a moment; imagining his own icy eyes crawling with biting flies, imagining the warm brown eyes of his wife and his son thick with larvae. The thought churned his stomach and yet he continued to gaze into it, unblinking, searing the vision into his soul.
+Johannes Walker’s nose curled at the stench of soured milk, carried by the autumn breeze. He couldn’t see his target yet, but it was most certainly here among the cedars, rooting somewhere downwind of him; one, perhaps two parasitic livercrawlers. Oleander subtype judging by the floral scent; Apocarnididae Nerium.
 
-Then as quickly as the dismal fantasy had come, it was gone.
+Finally.
 
-Johannes propped his rifle against a boulder and set about his work with practiced efficiency. He produced from his pack a kit designed for this kind of harvesting, and he opened it to reveal the gleaming instruments within; various sizes of scalpels and medical scissors, reinforced pouches and lined vials, with other helpful miscellany; alchemist gloves, labels, tweezers, and the like. The kit had cost him more than he cared to admit, but *God*, did it make the job easier and faster.
+He’d been out here near half a day already, having sent the rest of the hunting party ahead of him back towards the Sprawl so that he could pursue one final prey in solitude. This was where he felt most at home, in the quiet of the hunt, in bated breaths and strained ears and silent, cautious steps. His eyes and mind had the sharp edge of the predator and his body moved with an unearthly precision. Hahn was not a particularly superstitious man, yet in these moment he felt as though he were designed for this purpose. This was where he belonged.
 
-The boar’s meat was useless now, half-rotted and infested with insects, but the milkweed sap… *that* was the real motivation for braving the dangers of the livercrawlers. One vial of it carried enough bartering power to supply the Sprawl with several commodities through the winter; salt, coffee, grains, and most importantly of all – Suprex.
+ 
 
-He pruned the leaves and the flowers on the outside, then he hefted over the boar and slid the scalpel along the stomach, opening the skin and tissue to expose the organs within. The stomach was knotted up with roots and vines and dripping milksap, and Hahn grabbed these firmly and pulled them out. Along these roots were violet fungi, little mushroom symbiotes hitching a ride. Hahn cut them from the roots and slid them into a pouch. 
+And there! He could see it now. Stumbling unnaturally through the tall grasses came a large boar with red flowers blooming over its backside like bursts of blood. Hahn slowly crouched among the brush, lifting the scope of an old but well-kept bolt-action rifle to follow the creature’s motion.
+ 
 
-Harvesting the milksap was tougher – the nerium’s central ganglia was buried in the boar’s liver, hence the moniker *livercrawler* – but Hahn was no stranger to the task and excised the organ carefully. He held the liver in one hand and used a scalpel to make a thin slice, then carefully squeezed the contents into several of the available vials. He could feel the bulbous parasite that had taken up residence inside the liver, and though he knew the nerium was dead, his heart pumped a little faster. 
+Vines emerged from a hole in the unfortunate creature’s stomach, twisting through its insides and around its outsides, forcing it to ambulate in a jerking, uncoordinated gait. That coveted milksap — the reason for the entire expedition — dripped from the wound, creating a opalescent trail through the grasses and yielding its stench to the wind.
 
-The milksap that filled the vials was a nice, creamy white, with only traces of fluids from the boar remaining. Good; it would still require an alchemist to distill, but the purer the milksap the higher the bounty it would fetch. 
+ 
 
-Hahn packed the contaminated equipment into a sealed pouch and pulled off the thick gloves. And then his favorite part, the final step of the ritual; he plucked the last remaining flower from the butchered boar, saved just for him, his little reward. He popped that delicate blossom into his mouth, grinding it slowly between his teeth, savoring the nectar, a comfort as warm and relaxing as a waiting lover.
+The nose of the rifle followed as the creature scavenged the brush in a sick mimicry of animal life, waiting for the perfect shot at the parasite buried deep inside the boar.
+
+ 
+
+The first shot rang through the trees, scattering the birds and other small life. The boar emitted a shrill, warbling scream that was not of this world as it stumbled around. In a swift motion Hahn flicked up, back, and forward the action and fired a second round just to be certain of his victory. If he had to fire a third time, well, he figured he deserved to be eaten by the crawler.
+
+The Suprex-tipped bullets sent the creature into panicked seizures, the immediate neurotoxicity of the Suprex manifesting in the wild thrashing of the vines. It made a valiant effort to retract all of its parts back inside the carcass of the boar, and the price of that retreat was the meager ambulatory ability it had possessed. The boar fell over into the grasses, milksap oozing from the bullet holes. The parasite’s vines contracted briefly, then relaxed and fell around the corpse of the boar. Silence stretched outward from the scene.
+
+ 
+
+There was a moment of stillness; nothing moved.
+
+ 
+
+Only when assured of victory did Hahn lower his rifle. As he approached the boar, his eyes caught on the dead sockets of the animal, writhing with insects. The boar’s meat was useless now, half-rotted and infested with larvae, but the milkweed sap… that was the real motivation for braving the dangers of the livercrawlers. One vial of it carried enough bartering power to supply the Sprawl with several commodities through the winter; salt, coffee, butter, and most importantly of all, Suprex.
+
+ 
+
+Johannes set his rifle aside and went about the processing with practiced efficiency. He produced from his pack a kit designed for this kind of harvesting, and he opened it to reveal the gleaming instruments within; various sizes of scalpels and medical scissors, reinforced pouches and lined vials, with other helpful miscellany; alchemist gloves, labels, tweezers, and the like. The kit had cost him more than he cared to admit, but God, did it make the job faster. He pruned the leaves and the flowers on the outside, then he hefted over the boar and slid the scalpel along the stomach, opening the skin and tissue to expose the organs within. The stomach was knotted up with roots and vines and dripping milksap, and Hahn grabbed these firmly and pulled them out. Along these roots were violet fungi, little mushroom symbiotes hitching a ride. Hahn cut them from the roots and slid them into a pouch.
+
+ 
+
+Harvesting the milksap was tougher – the nerium’s central ganglia was buried in the boar’s liver, hence the moniker livercrawler – and Hahn took great care in excising the infected organ. He held the liver in one hand and used a scalpel to make a thin slice, then carefully squeezed the contents into several of the available vials. He could feel the bulbous parasite that had taken up residence inside the liver, and though he knew the nerium was dead, his pulse quickened.
+
+ 
+
+The milksap that filled the vials was a nice, creamy white, with only traces of fluids from the boar remaining. Good; it wasn’t much use to him it its current form, but it would fetch a higher bounty if pure.
+
+ 
+
+Hahn packed the contaminated equipment into a sealed pouch and pulled off the thick gloves. And then his favorite part, the final step of the ritual; he plucked the last remaining flower from the butchered boar, saved just for him, his little reward. He popped that delicate blossom into his mouth, grinding it slowly between his teeth, savoring the nectar, as comforting and warm as a waiting lover.
+
+ 
 
 Then he glanced towards the horizon where the sun was low and, in a habitual motion, rubbed the back of his neck. His sandy hair hid a rippling patch of burned, scarred skin, and he rubbed it the way one might rub a riverstone for luck, a silent prayer for a safe journey onward.
 
-Johannes stood and slung his pack over his shoulder, reclaimed his rifle, and began the trek to Mennuin’s Outpost.
+ 
 
+Hahn stood and slung his pack over his shoulder, reclaimed his rifle, and began the trek to Mennuin’s Outpost.
+
+ 
 
 ---
 
