@@ -19,7 +19,7 @@ Despite the whispers of winter in the breeze, spirits were high; the Octavian ha
 
 And so the Sprawl was a buzzing hive of preparation – cleaning, building, fixing, creating, and gathering literally anything that might be useful to *someone*.
 
-Brimjrar, a coyote beastkin with all the energy of youth, was perhaps the liveliest of all of them, and he sprinted through the main artery of the Sprawl, dodging people and piles of debris with deft abandon, his arms full of red fabric. He hopped over a barrel that rolled into his path, pivoted sharply into a large tent of stitched canvas, and tossed the red cloth into a pile. He threw his arms up triumphantly, panting.
+Brimjrar, a coyote therianthrope with all the vigor of youth, was perhaps the liveliest of all of them, and he sprinted through the main artery of the Sprawl, dodging people and piles of debris with deft abandon, his arms full of red fabric. He hopped over a barrel that rolled into his path, pivoted sharply into a large tent of stitched canvas, and tossed the red cloth into a pile. He threw his arms up triumphantly, panting.
 
 “A new record!” he shouted.
 
@@ -29,7 +29,9 @@ Four old ladies stopped their sorting and sewing long enough to clap and murmur 
 
 “Thanks, *sitva Nani*,” Brimjrar returned, his black-tipped tail wagging a little at the praise. “I can’t believe what the city folk throw out!”
 
-He ran a hand - slightly padded like those of his animal kin - through his shaggy black hair, his fur-tipped ears folding back. He stuck out his chin and in a deep, theatrical voice accented in the way of the Octavians, said, “Oy, butler. Ho, butler! See this sheet here? There’s a bit of a stain - yes, yes, I know I’ve just bought it. What’s that? A washing? Oh, no, that won’t be necessary, just throw it out.”
+He ran a hand - slightly padded like those of his animal kin - through his shaggy black hair, his fur-tipped ears folding back. He was a lesser therianthrope, which simply meant his animalistic traits were minor, and he had the long, straight legs of a human. The pads on his hands, the fur of his ears, and eyes that glowed in the night were the most bestial traits about him, but when he flashed his wide smile there was no hint of the predator in it. He had a little tail, too, brown and black, which wagged nigh unceasingly regardless of the weather. 
+
+Brimjrar stuck out his chin and in a deep, theatrical voice accented in the manner of Octavians, said, “Oy, butler. Ho, butler! See this sheet here? There’s a bit of a stain - yes, yes, I know I’ve just bought it. What’s that? A washing? Oh, no, that won’t be necessary, just throw it out.”
 
 He pantomimed tossing the unwanted object over the wall, and all the ladies cackled with laughter.
 
@@ -47,9 +49,12 @@ The young coyote folded the paper back over his wages, thanked the ladies again,
 
 Brimjrar jogged down the path to the shack he shared with his brother, and his keen nose picked up a waft of floral perfume. It was faded now, and so he ventured to poke his head through the hanging flap of tarp that constituted their door.
 
-“Jakim!” he called. “How’s Mrs. Mourney doin’?”
+“Jakim!” he called. 
 
-Brimjrar’s brother was a tall, lean coyote beastkin with olive-toned skin and long, dark dreadlocks, and he could almost pass as human if he had the mind to. He was riddled with piercings, both traditional and contemporary, and his exposed arms had bands of tattoos in the manner of the desert tribes. He was putting on a tattered belt that was so stretched thin, it was wildly unhelpful in keeping his pants up.
+Though they were bound by blood, Brimjrar's brother looked quite different. He had not been blessed with lesser therianthrope traits, as Brimjrar had. Nor did he have the regal, ferocious stature of greater therianthrope. Jakim was... something in between the two. Typically therian hybrids had one aspect dominate the other -- whether that was the human aspect dominating the therian, resulting in lesser traits, or the therian dominating the human, resulting in greater traits. They could choose, then, to live a more human existence, or to take up with the beast tribes of the Outlands. But Jakim was... different -- *flawed*. He was uncanny, even hideous, and had a disfigured shape to him. He bore the deep-jointed knees of the therianthrope, and elongated feet, but one leg was slightly longer than the other, giving him an awkward stance. He arms were unusually long, too, and half of his face was covered assymetrically with tan fur. Even his eyes were mixed, the furred side a rich gold, and the skinned side a drab hazel. He had long, black dreadlocks, but this did little to humanize his uncanny figure. Some claimed he seemed stitched together by some capricious god, likely the work of Hasha, the jackal.
+
+
+What exposed flesh he had was riddled with piercings, both traditional and contemporary, and his arms had bands of tattoos in the manner of the desert tribes. 
 
 “Better these days, seems like. She brought ya something,” Jakim replied.
 
