@@ -1,5 +1,3 @@
-![!Oasis 1](https://cdn.discordapp.com/attachments/638778932380041236/1134991743029358592/Oasis_CH4.png)
-
 ## Chapter 4: Bullet Point #1
 
 The Outer Wall of Octavia was one of the most impressive structures on the continent, stretching it's nigh impenetrable barrier in a wide arc around the Octavian countryside, terminating at treacherous cliffs overlooking the Fanged Sea. Far more formidable than its kin at Sobretses, the Octavian Wall had to compensate for a weaker lighthouse, and it more than accomplished that; Octavia was widely considered unconquerable by man, the epitome of defensive engineering. 
