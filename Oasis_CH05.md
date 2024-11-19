@@ -1,5 +1,3 @@
-![!Oasis 5](https://cdn.discordapp.com/attachments/638778932380041236/1195028745166274570/Oasis_CH45.png)
-
 ## Chapter 5: The Preliminaries
 
 The hunter breathed in the damp scent of the underground, perspiration beading on his forehead. Hahn’s fingers twitched with the sensation of insects skittering beneath his skin, and he shook his hands to relieve the discomfort, shifting his weight back and forth from one foot to the other. His heart thumped in his chest with unusual fervor, and the sweat on his brow rolled down his face despite the chill. He jerked his head and shoulders periodically to combat the creeping things infecting his nervous system, and forced his brain and his senses to *focus*. What did he know?
