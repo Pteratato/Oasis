@@ -61,7 +61,7 @@ Though they were bound by blood, Brimjrar's brother looked quite different. He h
 
 “Jakim!” Brimjrar exclaimed in exasperation, practically dancing around his brother in a circle. “Where. Is. The. Gift?!”
 
-Jakim couldn’t help but to smile at his brother’s excitement. Childhood in the Sprawl… well, there usually wasn’t much of one, but he’d always done his best to make sure Brimjrar wasn’t forced to grow up too fast. Moments like these, with his brother’s exuberance and enthusiasm, he felt like he’d done something right.
+Jakim couldn’t help but to smile at his brother’s excitement. Childhood for their station… well, there usually wasn’t much of one, but he’d always done his best to make sure Brimjrar wasn’t forced to grow up too fast. Moments like these, with his brother’s exuberance and enthusiasm, he felt like he’d done something right.
 
 “Alright, alright, keep your fur on! Here you go,” Jakim said, pulling from his back pockets two glass bottles with elegant wax seals. “Some of the finest ink in the country. Just in time for the festival!”
 
