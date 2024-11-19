@@ -1,5 +1,3 @@
-![!Oasis 2](https://cdn.discordapp.com/attachments/638778932380041236/1123664973864898591/Oasis_CH3.png)
-
 ## Chapter 3: The Skulled Crow
 
 *Hahn,*  
