@@ -51,14 +51,11 @@ Brimjrar jogged down the path to the shack he shared with his brother, and his k
 
 “Jakim!” he called. 
 
-Though they were bound by blood, Brimjrar's brother looked quite different. He had not been blessed with lesser therianthrope traits, as Brimjrar had. Nor did he have the regal, ferocious stature of greater therianthrope. Jakim was... something in between the two. Typically therian hybrids had one aspect dominate the other -- whether that was the human aspect dominating the therian, resulting in lesser traits, or the therian dominating the human, resulting in greater traits. They could choose, then, to live a more human existence, or to take up with the beast tribes of the Outlands. But Jakim was... different -- *flawed*. He was uncanny, even hideous, and had a disfigured shape to him. He bore the deep-jointed knees of the therianthrope, and elongated feet, but one leg was slightly longer than the other, giving him an awkward stance. He arms were unusually long, too, and half of his face was covered assymetrically with tan fur. Even his eyes were mixed, the furred side a rich gold, and the skinned side a drab hazel. He had long, black dreadlocks, but this did little to humanize his uncanny figure. Some claimed he seemed stitched together by some capricious god, likely the work of Hasha, the jackal.
+Though they were bound by blood, Brimjrar's brother looked quite different. He had not been blessed with lesser therianthrope traits, as Brimjrar had. Nor did he have the regal, ferocious stature of the greater therianthrope. Jakim was... something in between the two. Typically therian hybrids had one aspect dominate the other -- whether that was the human aspect dominating the therian, resulting in lesser traits, or the therian dominating the human, resulting in greater traits. They could choose, then, to live a more human existence, or to take up with the beast tribes of the Outlands. But Jakim was... different -- *flawed*. He was uncanny, even hideous, and his shape was disfigured. He bore the deep-jointed knees of the therianthrope, and elongated feet, but one leg was slightly longer than the other, giving him an awkward stance. He arms were unusually long, too, and half of his face was covered asymetrically with tan fur. Even his eyes were mixed, the furred side bearing a rich, golden iris, and the skinned side a drab hazel. His long, black dreadlocks did little to humanize his offensive figure, and some speculated that he'd been cursed by a capricious god, or stitched together in infancy from leftover parts. What exposed skin he had was riddled with piercings, both traditional and contemporary, and his arms had bands of tattoos in the manner of the desert tribes. 
 
+"Just the pup I wanted to see," Jakim greeted, smiling with half his face. "I have a gift for you."
 
-What exposed flesh he had was riddled with piercings, both traditional and contemporary, and his arms had bands of tattoos in the manner of the desert tribes. 
-
-“Better these days, seems like. She brought ya something,” Jakim replied.
-
-“Whaaat? Where is it? You holdin’ out on me??”
+"Whaaaaaat? What is it?"
 
 “Hang on, I should make the bed first,” Jakim said, turning to the mess of sheets. With a single motion, he whisked the fabric away, leaving the crates underneath bare. “There, all done.”
 
@@ -66,9 +63,9 @@ What exposed flesh he had was riddled with piercings, both traditional and conte
 
 Jakim couldn’t help but to smile at his brother’s excitement. Childhood in the Sprawl… well, there usually wasn’t much of one, but he’d always done his best to make sure Brimjrar wasn’t forced to grow up too fast. Moments like these, with his brother’s exuberance and enthusiasm, he felt like he’d done something right.
 
-“Alright, alright, keep your fur on! Here you go,” Jakim said, pulling from his back pockets two glass bottles with elegant wax seals. “Some of the finest ink money – *or charm* – can buy. Just in time for the festival!”
+“Alright, alright, keep your fur on! Here you go,” Jakim said, pulling from his back pockets two glass bottles with elegant wax seals. “Some of the finest ink in the country. Just in time for the festival!”
 
-Brimjrar’s eyes grew wide, and he snatched the bottles as if they might disappear into thin air. “No way!” he exclaimed. “And red?? This is awesome – man, Mrs. Mourney must really like you.”
+Brimjrar’s eyes grew wide, and he snatched the bottles as if they might disappear into thin air. “No way!” he exclaimed. “And red?? Where did you get these??”
 
 Jakim shrugged, but smiled mysteriously and said, “I know a few tricks.”
 
