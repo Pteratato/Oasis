@@ -1,42 +1,5 @@
-![!Oasis 2](https://cdn.discordapp.com/attachments/638778932380041236/1123664943837880390/Oasis_CH12.png)
 
 ## Chapter 2: The Dilemma
-
-The hunter inhaled a deep drag from a cigarette, his cool eyes fixed on the tallest structure in the outpost; Mennuin’s Lighthouse. It had the same personality as the other buildings here, patched with scrap metal, radiating neon lights, and graffitied with threats.
-
-*Stay Away*
-
-*Beware of dog*
-
-*Trespassers will DEFINITELY be shot*
-
-Hahn exhaled the smoke and took up a leisurely stroll along the perimeter of the fence surrounding the *pharos*, but the fence contained an opaque mesh cover that prevented any clear view of the inside. If he glanced up, he could easily see the garish magenta obelisk illuminated against the dawning sky, but there was nothing useful to be gleaned from the top of the lighthouse. Still, he was almost impressed by the consistency of Mennuin’s gaudy tastes, and had to admit that it was truly a beacon visible for miles.
-
-Hahn paused near a padlocked gate, working through his cigarette and pondering his options. Folk of the outpost were not the early to rise sort, and so the ramshackle shops and residences were still dark and quiet. The occasional figure moving about this early paid no mind to him, going about their own business, and so Hahn turned his consideration back to the fence. It was tall, but not impassable for someone with his upper body strength, although the coils of barbed wire lining the top did seem unpleasant.
-
-He stuck the cigarette in the corner of his mouth and grabbed the top of the fence, careful to avoid the barbs. Then he hefted up his heavy body just enough to peer over the barrier into the dirt yard surrounding the lighthouse.
-
-A wooden shack annexed the lighthouse, cables ran all through the yard, and unmarked barrels stacked up against the structures, but nothing seemed out of the ordinary. Hahn quickly found the control panels, but a long piece of sheet metal was leaned up against the lighthouse to block it from view.
-
-Then something familiar shambled in his periphery and his blood chilled. A large canine infected with nerium stumbled out of the shack, its eyes milky and its body strangled with vines and scarlet flowers.
-
-“FUCK!” Hahn barked and let go, immediately collapsing against the fence. He scrambled up in a flash and furiously sought his rifle, only he didn’t have it on his person, having decided earlier if he had trouble with the Outposters they were less likely to consider him a threat without his weapon. He cursed again and redirected to his belt knife, but an ominous click froze his movements. He slowly lifted his hands into the air, turning.
-
-Father Barrabas stood behind him, gripping an antique handgun in both hands. The big man had the barrel trained on Hahn, but wore a gentle smile.
-
-“Father,” Johannes growled through gritted teeth. “With all due respect, *are you out of your goddamn mind!?* You have a fucking livercrawler– what is that, stage 2? – A fucking *livercrawler* – Barrabas, you got *kids* here–”
-
-“That’s enough outta yer mouth, lad,” Barrabas replied, his deep voice low. “Mennuin’s business is Mennuin’s. I think you oughta be gettin’ back to yer own folk.”
-
-“*They ain’t fucking pets*, goddamn it–!”
-
-“And what were *you* snoopin’ around for, Hahn?” Barrabas cut in, and this time there was harshness in tone. “Hm? What business you got with our lighthouse?”
-
-The Outpost was rising now, the energy shifting from the stillness of night into the wakefulness of morning. Hahn backed down, unable to make a stand here, unwilling to answer Barrabas’ questions, he sulked back. Barrabas nodded towards the Outpost’s main gate, and Hahn turned back towards the general storeto collect his packs.
-
-He reached into his pocket to replace the cigarette he’d dropped, but when he found only two left in his pack, he decided to just cope with the frayed nerves.
-
----
 
 Several days’ travel from Mennuin’s Outpost rested a settlement of a different sort; the Octavian Sprawl, a lesion on the side of the grand city’s stalwart Outer Wall. The Sprawl was a cluster of trash and refugees, an unsightly mass that had washed up against the wall two years ago, and remained huddled there ever since, desperate to stay within the protective range of the Octavian lighthouse.
 
