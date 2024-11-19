@@ -137,7 +137,7 @@ He stood there a moment, silent, watching her go. He glanced at Hobbes, now danc
 
 He understood why he’d been chosen, but there was such a feeling of deceit that he just couldn’t shake. The priest bowed his head.
 
-*‘Lord, grant me wisdom,* 
+*'Adonai chonen otti chochmah* 
 *Grant me faith, in Your path and in mine own intuition,*  
 *Grant me the clarity to see what must be done,*  
 *The courage to accomplish the task laid at my feet,*  
