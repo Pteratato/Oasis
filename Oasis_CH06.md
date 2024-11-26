@@ -16,7 +16,7 @@ It was the smallest sound that echoed back to him, so unexpected and frightening
 
 
 
-"Papa?"
+*"Papa?"*
 
 
 
@@ -36,15 +36,15 @@ Penetrating the velvet space like a distant star was a small, violet light. It 
 
 
 
-“‘I might be a shit dad…’” he told Jakim. “…but I’m not gonna let my kid fall into their hands’.”
+*“‘I might be a shit dad…’” he told Jakim. “…but I’m not gonna let my kid fall into their hands’.”*
 
 
 
-“Look, Hahn!” Anna peered up at him tearfully. “A perfect baby boy; he even has your eyes.”
+*“Look, Hahn!” Anna peered up at him tearfully. “A perfect baby boy; he even has your eyes.”*
 
 
 
-“I wanted to get rid of you,” he whispered to the bundle in his arms. “Yer mom always was a stubborn one, so I guess we’re stuck. Sorry for your luck, kid.”
+*“I wanted to get rid of you,” he whispered to the bundle in his arms. “Yer mom always was a stubborn one, so I guess we’re stuck. Sorry for your luck, kid.”*
 
 
 
@@ -72,7 +72,7 @@ And he hesitated.
 
 
 
---
+---
 
 
 
@@ -84,7 +84,7 @@ Hahn jolted as a dark shape grabbed him, hot against his chilled skin, and he la
 
 
 
---Sploosh! Frigid water splashed against his face, shocking his system like an electric charge. 
+--*Sploosh!* Frigid water splashed over his head, shocking his system like an electric charge. 
 
 
 
@@ -146,11 +146,11 @@ She asked his full name in a supplicating voice and, thankfully, that was an eas
 
 
 
-He scoffed, wondering what divinity would want someone like him anyways.
+He snorted, pondering briefly what a deity who would choose *him* would be like.
 
 
 
-"Just answer the lady's question," interjected the swimming, mostly naked pectorals of whatever fighter had pulled him up. Solianus, was it? "Do you have any godspells, blessings, curses, or any other divine attribution?"
+"Just answer the lady's question," interjected the swimming, mostly naked pectorals of whatever fighter had pulled him up. Solianus, was it? "Do you have any godspells, blessings, curses, or other divine attribution?"
 
 
 
@@ -218,15 +218,15 @@ Solianus was dangerous, Hahn decided.
 
 
 
---
+---
 
 
 
 High over Octavia with her unceasing gaze, the *pharos* turned in perpetual vigilance, it's bright light both an invitation and a warning. Rising from the red cliffs over the harbor, it was one of the few pharoi that also functioned as a traditional lighthouse, hailing sailors far out into the Fanged Sea. The vaguely noxious scent of the Surprex oil wafted thickly from this origin to blanket the city, stretch its protective fumes over the miles and miles of Octavian countryside, and even reach as far as the Sprawl on the other side of the Outer Wall.
 
-Though not as immense as the lighthouse at Sobretses, the Octavian pharos was a particularly lovely specimen of its kind, with gold filigree inlaid along the pale metal, and blossoms of quartz and semi-precious stones.  The people called her Seraphiel the Watcher, and frequently left little gifts and flowers and food along the base as tokens of gratitude for her eternal vigil.
+Though not as immense as the lighthouse at Sobretses, the Octavian pharos was a particularly lovely specimen of its kind, with gold filigree inlaid along the pale metal, and blossoms of quartz and semi-precious stones.  The people called her *Watcher Seraphiel*, and frequently left little gifts and flowers and food along the base as tokens of gratitude for her eternal vigil.
 
-There were few places in Octavia that Seraphiel's light couldn't penetrate. Far, far out from the city proper, past those miles and miles of countryside, inside the Outer Wall at the southern terminus was the Amphitheater of Wheels, one of the only sizable structures outside of the city. And beneath the Amphitheater existed a network of caves and tunnels, designed as a living space for hominids long before the founding of the city, the construction of the great walls, or the invention of the lighthouses. Affectionately referred to as the Warren, this network of caves and tunnels had been repurposed for many uses, but chiefly among them was the home of *Ludus Kessouath*, which would seasonally fill up with the best -- or at least the boldest -- fighters from all over the continent.  
+There were few places in Octavia that Seraphiel's light couldn't penetrate. Far, far out from the city proper, past those miles and miles of countryside, inside the Outer Wall at the southern terminus was the *Amphitheater of Wheels*, one of the only sizable structures outside of the city. And beneath the Amphitheater existed a network of caves and tunnels, designed as a living space for hominids long before the founding of the city, the construction of the great walls, or the invention of the lighthouses. Affectionately referred to as the Warren, this network of caves and tunnels had been repurposed for many uses, but chiefly among them was the home of *Ludus Kessouath*, which would seasonally fill up with the best -- or at least the boldest -- fighters from all over the continent.  
 
 
 
