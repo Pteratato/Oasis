@@ -1,26 +1,21 @@
 ## Chapter 1: The Hunt
 
-
 I am the Storyteller; listen.
 
-A story can be many things, but foremost it is a journey.  The journey of someone who stretches out his or her hand towards something, and is willing to face all obstacles to reach for it. The most beloved tales have a hero at the helm, a gallant figure who represents everything that we are not, a model to fix our eyes upon and mold our lives after. If mankind is fashioned from the mud of the Earth and the breath of the Creator, then the hero must rank nearer to the Creator on this scale. He serves to inspires us to reach towards the sun.
+In the beginning, the breath of the Creator and the mud of the Earth borne the first of Man. Many other creatures did the Creator shape with different materials; animals that walked the Earth, races of all sizes and dispositions formed out of stone and air and water, and even the creeping things, but none were as precious as Man.
 
-Yet in spite of these noble models, the threads of humankind are more tightly woven with the soil of the Earth, the beasts of the forest, and the things hidden beneath. With these heroes so few and distant, we find ourselves instead surrounded by men closer to mud.
+You see, the best quality of mud is that it may be shaped into things, molded into the perfect form and hardened by fire. Man, for all of its passions and foibles, took on every shape imaginable. Each individual formed into a unique shape, each group, each country, and mankind as a whole in a constantly shifting, mesmerizing flow of change. The slightest inflection can cause a ripple through an entire population of Man, and Man alone has the unlimited potential to reach the height of the heavens or the depths of the abyss. Man alone can traverse the spectrum implied by its origin materials – from the mud of the earth to the breath of God, and infinite manifestations in between. 
 
-But nothing is more certain in life than the uncertainty of life; we too easily forget that we are not stagnant shapes, not men of stone, but constantly changing. And it is often the whim of gods to continue refining a man of mud, to see what could be made of him, because it is in the nature of a Creator to create for no other purpose than seeing what can be made.
+And because of this, Man is uniquely blessed and uniquely cursed. Bearing the insatiable curiosity of the Creator, they’re compelled to constantly wander, discover, create, and build. Yet miraculously, in the span of the smallest gasp of their existence, they do find. They do build. In its instinctive mimicry of God, Man creates.
 
- 
+The most powerful of these creations are the stories. A story has the power to travel through the ages, to shape innumerable figures from one end of the Earth to the other, and from one end of time to the other. And, sometimes, the stories can themselves create life.
 
-These are my favorite stories, where we have the privilege of witnessing how a man may be molded into his best form, or perhaps into his worst form. How he may ascend or descend, or both, at times. And perhaps we’ll see a little of ourselves in him, as fellow men of mud.
+I collect them, you know. The stories, I mean. The enduring legacy of nations. The trials of the epic heroes. The games of the lesser gods. The formation of the world and the destruction of the world. The romances, the tragedies, the hilarities of life on this Earth. The cursed and the blessed. The warriors and the cowards. The seductive and the hideous; sometimes one and the same. My favorite are the stories with an unlikely hero, where a man of mud is being visibly formed. And from the head of the story to the tail, you can look back and forward through time and see the molding by the invisible hands of circumstance, or Providence, or some combination of both. What will the final shape be? The best iteration of himself? The worst? Or… a little of both, perhaps? 
 
+Maybe we’ll even see a touch of ourselves in him.
 
-I am the Storyteller. Let us turn our gaze to this world where men of mud toil endlessly in a desperate attempt to thrive and build, and create something lasting in the short gasp of their existence.
+But I digress. Let us turn our gaze now to the soil of the Earth, where a hunter creeps through the brush in pursuit of his quarry.
 
- 
-
-And look here; one hunter has caught the scent of his quarry. Shall we see what he's found?
-
- 
 
 ---
 
