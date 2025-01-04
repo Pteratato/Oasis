@@ -4,16 +4,15 @@
 *I met a man and Im going with him. You and I had our life together, but I cant stay here anymore. I cant stay with you. This man will take care of us and the baby. The babys not right. I have to find a doctor. I dont want to be with you. Please dont try to find me. Our girl will die here and I can’t bear that. Please think of her.*  
 *-Anna*
 
+Hahn's hand clenched around a fistful of Jakim's shirt, and he heaved the sleeping coyote from his bed and slammed him into the wall, knocking over a shelf and sending ink bottles skittering across the dirt floor. The therianthrope lashed back instinctively, snarling and fighting against the sudden attack, clawing at the arm pinning him.
 
-Hahn’s hand clenched around a fistful of Jakim’s shirt, and he heaved the sleeping coyote from his bed and slammed him against the wall, knocking over a shelf and sending ink bottles skittering across the dirt floor. The therianthrope lashed back before he knew what was happening, snarling and fighting against the unexpected aggression, clawing at the arm keeping him pinned.
+"What the fuck is this!?" Hahn shouted, thrusting forward a crumpled piece of paper with Anna's disjointed, childlike scrawl. "Who the fuck is he!?"
 
-*“What the fuck is this!?”* Hahn shouted, holding up a crumpled piece of paper with Anna’s disjointed, childlike scrawl. *“Who the fuck is he!?”*
+"Hahn! Get your goddamn hands off me!" Jakim growled back, driving his fist into Hahn's abdomen and forcing the air from his lungs. Hahn gasped and released the coyote, but surged forward with a heavy blow to Jakim's jaw. Jakim slumped into the wall but knew every second counted. He threw his weight into Hahn's chest and they both staggered back, falling into a makeshift bed of plastic crates that splintered under their combined weight. They crashed into a chaotic pile of sheets and crates and fists and snarls, each fighting for dominance.
 
-“Hahn! Get your goddamn hands off me!” Jakim growled back, slamming his fist into Hahn’s abdomen and forcing the air from his lungs. Hahn gasped and released the coyote, but rapidly recovered and struck a heavy blow against Jakim’s jaw. Jakim crumbled against the wall but he knew every second counted. He threw his weight into Hahn’s chest and they both staggered back, falling into a makeshift bed of plastic crates that crumbled under the blow. They fell into a chaotic pile of sheets and crates and fists and snarls, each trying to get the upper hand on the other.
+"Stop fighting!" Brimjrar cried desperately from the other side of the room, his voice distant and ineffective against their rage. "Both of you, stop!"
 
-“Stop fighting!” Brimjrar cried desperately from the other side of the room, but his voice seemed far away, unable to penetrate the conflict. “Both of you, stop!”
-
-“*Where’s my wife?*” Hahn snarled as they struggled among the bedding and overturned crates. He had the upper hand in brute strength, but Jakim was quick and precise, making him formidable even against the hunter’s wild fury. Jakim evaded as long as he could, but it wasn’t long before Hahn managed to pin the coyote beneath his greater weight.
+"Where's my wife?" Hahn snarled as they struggled among the bedding and overturned crates. He had the upper hand in brute strength, but Jakim was quick and precise, making him formidable even against the hunter's wild fury. Jakim evaded as long as he could, but it wasn't long before Hahn managed to pin the coyote beneath his greater weight.
 
 “You said you would protect them!” the enraged Hahn shouted, smashing his fist into Jakim’s jaw. “Where is she!?”
 
